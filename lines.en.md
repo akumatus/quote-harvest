@@ -1,0 +1,132 @@
+# Lines (English) — 128
+
+Lines that genuinely circulate online with no name a reader would recognize — an internet handle, a small blogger, or nobody knows. Each was search-verified to circulate on the day it was added; none were written by a model. Signed: Anonymous.
+
+- Difficult roads often lead to beautiful destinations.
+- You can do hard things.
+- Progress, not perfection.
+- Bloom where you are planted.
+- Good things take time.
+- The comeback is always stronger than the setback.
+- Not all storms come to disrupt your life; some come to clear your path.
+- Don't forget to drink water and get some sunlight; you're basically a houseplant with complicated emotions.
+- You've survived one hundred percent of your worst days.
+- Some days you just have to create your own sunshine.
+- You can't pour from an empty cup.
+- Collect moments, not things.
+- Slow progress is still progress.
+- Rest is productive too.
+- Trust the timing of your life.
+- Doubt kills more dreams than failure ever will.
+- One day, or day one. You decide.
+- Storms don't last forever.
+- Your only competition is who you were yesterday.
+- Be gentle with yourself; you're doing the best you can.
+- Do it scared.
+- Growth is growth, no matter how small.
+- In a world where you can be anything, be kind.
+- Water yourself; you're growing too.
+- Choose joy.
+- Protect your peace.
+- You are not behind in life.
+- Romanticize your life.
+- Do it for the plot.
+- Normalize resting.
+- Be a nice human.
+- Do more of what makes you happy.
+- Stay soft in a hard world.
+- You are not required to set yourself on fire to keep others warm.
+- It costs nothing to be kind.
+- Be the person your dog thinks you are.
+- Nothing changes if nothing changes.
+- Everything is hard before it's easy.
+- Feelings are visitors. Let them come and go.
+- Nobody is thinking about your mistake as much as you are.
+- You are allowed to take up space.
+- Someday is not a day of the week.
+- How you speak to yourself matters.
+- Rest is not quitting.
+- Take the pressure off. It's only a Tuesday.
+- Just keep going. Everybody gets scared sometimes.
+- Great things never came from comfort zones.
+- Be the reason someone believes in good people.
+- Every day may not be good, but there's something good in every day.
+- You're gonna be happy said life, but first I'll make you strong.
+- Someday everything will make perfect sense. So laugh at the confusion for now.
+- Wear your tiredness like a badge, then take it off and rest.
+- Nobody trips over mountains. It is the small pebble that causes you to stumble.
+- I'm not crying, you're crying. Ok, we're both crying.
+- I don't want to fight, I want to have breakfast.
+- Everything is fine. I'm fine. Actually, I'm getting better.
+- You have been assigned this mountain to show others it can be moved.
+- Go easy on yourself. Whatever you do today, let it be enough.
+- Drink water and mind your business.
+- Your only job today is to be a little kinder than yesterday.
+- Nothing bad ever happens to those who go outside for ten minutes.
+- Comfy socks fix roughly forty percent of problems.
+- Somebody out there is glad you exist and forgot to mention it.
+- The mountain is you, and you are also the climber.
+- Please stay. You are worth the trouble of staying.
+- You did not wake up today to be mediocre. But mediocre is also allowed.
+- Be soft. Do not let the world make you hard.
+- Stars can't shine without a little darkness.
+- You are allowed to be a masterpiece and a work in progress.
+- It's okay to not be okay today.
+- Take today one cup of tea at a time.
+- Do something today that your future self will thank you for.
+- It's going to be hard, but hard does not mean impossible.
+- Kindness is free, sprinkle it everywhere.
+- Grow through what you go through.
+- The best project you will ever work on is you.
+- When it rains, look for rainbows. When it's dark, look for stars.
+- Be so completely yourself that everyone else feels safe to be themselves too.
+- One day you will tell your story of how you overcame, and it'll help someone.
+- Whatever is good for your soul, do that.
+- Sometimes the wrong choices bring us to the right places.
+- Don't stop when you're tired. Stop when you're done.
+- A goal without a plan is just a wish, so start planning small.
+- Be the energy you want to attract.
+- Some days the bravest thing you do is get up. That counts.
+- Breathe. You're doing better than you think.
+- Fall in love with taking care of yourself.
+- You have within you right now everything you need.
+- Someone is proud of you today, even if they forgot to say it.
+- You've survived every bad day so far. That's a perfect record.
+- You don't have to be positive all the time; it's okay to feel your feelings.
+- What would you attempt if you knew you could not fail?
+- Stay close to people who feel like sunlight.
+- Be so busy loving your life that you have no time for regret or fear.
+- Everything you want is on the other side of fear.
+- You are exactly where you need to be.
+- Healing is not linear.
+- Growth is uncomfortable because you've never been here before.
+- Take what you need, and leave what you don't.
+- You are your own home.
+- Don't believe everything you think.
+- The best view comes after the hardest climb.
+- Wherever there is light, there is a way through.
+- Don't cry for those who hurt you. Rise and shine.
+- It's okay to be a work in progress.
+- Be proud of yourself for how hard you're trying.
+- Your speed doesn't matter. Forward is forward.
+- If it costs you your peace, it's too expensive.
+- What if it all works out?
+- You don't have to be perfect to be amazing.
+- One small positive thought in the morning can change your whole day.
+- Being soft is not a weakness.
+- Throw kindness around like confetti.
+- Today, just do your best. And let that be enough.
+- A year from now, you'll be glad you started today.
+- Falling down is an accident. Staying down is a choice.
+- Give yourself the same grace you give everyone else.
+- This too shall pass.
+- It's okay to be a glowstick: sometimes we have to break before we shine.
+- Rest is not a reward. You don't have to earn rest.
+- Be patient with yourself. Nothing in nature blooms all year.
+- there are people to love and dishes to do in the meantime
+- If one day you feel like crying, call me. I don't promise that I will make you laugh, but I can cry with you.
+- Rest is not a reward. You don't have to earn rest. You need rest. You deserve rest.
+- So far, you've survived 100% of your worst days. You're doing great.
+- The day you plant the seed is not the day you eat the fruit.
+- You have survived every moment of your life, even the ones you swore you wouldn't. This time is no different; you will last.
+- You are allowed to rest. You don't need to be productive all the time.

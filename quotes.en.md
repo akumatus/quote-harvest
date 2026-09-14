@@ -1,0 +1,1463 @@
+# Quotes (English) — 1459
+
+Real lines with real attributions — novels, films, series, authors, the occasional speech. Each one is signed with a person or work a reader might recognize. Chronological: newest at the bottom.
+
+- The future belongs to those who believe in the beauty of their dreams. — Eleanor Roosevelt
+- Wherever you go, go with all your heart. — Confucius
+- The secret of getting ahead is getting started. — Mark Twain
+- The only way to do great work is to love what you do. — Steve Jobs
+- Little by little, one travels far. — J.R.R. Tolkien
+- What we think, we become. — Buddha
+- Where there is love there is life. — Gandhi
+- Believe you can and you're halfway there. — Theodore Roosevelt
+- It is our light, not our darkness, that most frightens us. — Marianne Williamson
+- Everything is figureoutable. — Marie Forleo
+- You are allowed to be both a masterpiece and a work in progress. — Sophia Bush
+- She believed she could, so she did. — R.S. Grey
+- Hope is a good thing, maybe the best of things, and no good thing ever dies. — The Shawshank Redemption
+- Get busy living, or get busy dying. — The Shawshank Redemption
+- Clear eyes, full hearts, can't lose. — Friday Night Lights
+- Live long and prosper. — Star Trek
+- Doing the right thing is never the wrong thing. — Ted Lasso
+- It does not do to dwell on dreams and forget to live. — Harry Potter
+- We must all face the choice between what is right and what is easy. — Harry Potter
+- The things that make me different are the things that make me. — Winnie the Pooh
+- Sometimes the smallest things take up the most room in your heart. — Winnie the Pooh
+- How lucky I am to have something that makes saying goodbye so hard. — Winnie the Pooh
+- A little consideration, a little thought for others, makes all the difference. — Eeyore
+- The wound is the place where the Light enters you. — Rumi
+- What you seek is seeking you. — Rumi
+- You were born with wings; why prefer to crawl through life? — Rumi
+- Yesterday I was clever, so I wanted to change the world. Today I am wise, so I am changing myself. — Rumi
+- Finish each day and be done with it. You have done what you could. — Emerson
+- Write it on your heart that every day is the best day in the year. — Emerson
+- For every minute you are angry you lose sixty seconds of happiness. — Emerson
+- The most wasted of all days is one without laughter. — E.E. Cummings
+- Life is either a daring adventure or nothing at all. — Helen Keller
+- Alone we can do so little; together we can do so much. — Helen Keller
+- Everything has beauty, but not everyone sees it. — Confucius
+- It does not matter how slowly you go as long as you do not stop. — Confucius
+- You must be the change you wish to see in the world. — Gandhi
+- The future depends on what you do today. — Gandhi
+- In a gentle way, you can shake the world. — Gandhi
+- Darkness cannot drive out darkness; only light can do that. — Martin Luther King Jr.
+- Faith is taking the first step even when you don't see the whole staircase. — Martin Luther King Jr.
+- The time is always right to do what is right. — Martin Luther King Jr.
+- Stay hungry, stay foolish. — Steve Jobs
+- Your time is limited, so don't waste it living someone else's life. — Steve Jobs
+- Success is not final, failure is not fatal: it is the courage to continue that counts. — Winston Churchill
+- If you're going through hell, keep going. — Winston Churchill
+- The only thing we have to fear is fear itself. — Franklin D. Roosevelt
+- When they go low, we go high. — Michelle Obama
+- Comparison is the thief of joy. — Theodore Roosevelt
+- We may encounter many defeats, but we must not be defeated. — Maya Angelou
+- If you don't like something, change it. If you can't change it, change your attitude. — Maya Angelou
+- Love means never having to say you're sorry. — Love Story
+- Wherever you go, there you are. — Jon Kabat-Zinn
+- After all, tomorrow is another day. — Gone with the Wind
+- Why do we fall? So we can learn to pick ourselves up. — Batman Begins
+- The greatest thing you'll ever learn is just to love and be loved in return. — Moulin Rouge
+- To live would be an awfully big adventure. — Peter Pan
+- The greatest teacher, failure is. — Star Wars
+- What we do in life echoes in eternity. — Gladiator
+- Some birds aren't meant to be caged; their feathers are too bright. — The Shawshank Redemption
+- I'll be right here. — E.T.
+- Our lives are not our own. We are bound to others. — Cloud Atlas
+- Everything you can imagine, you already are. — Soul
+- You control your destiny. You don't need magic to do it. — Brave
+- It's going to be legen — wait for it — dary. — How I Met Your Mother
+- Football is life! — Ted Lasso
+- Every man dies, not every man really lives. — Braveheart
+- Live every week like it's Shark Week. — 30 Rock
+- The people crazy enough to change the world are the ones who do. — Apple
+- It matters not what someone is born, but what they grow to be. — Harry Potter
+- Words are our most inexhaustible source of magic. — Harry Potter
+- There is no one alive who is youer than you. — Dr. Seuss
+- A reader lives a thousand lives before he dies. — George R.R. Martin
+- All shall be well, and all manner of thing shall be well. — Julian of Norwich
+- The only impossible journey is the one you never begin. — Tony Robbins
+- The best way to predict the future is to create it. — Peter Drucker
+- Life is 10% what happens to us and 90% how we react. — Charles Swindoll
+- You cannot swim for new horizons until you lose sight of the shore. — William Faulkner
+- Go where there is no path and leave a trail. — Emerson
+- The only limit to tomorrow is our doubts of today. — Franklin D. Roosevelt
+- If you want to lift yourself up, lift up someone else. — Booker T. Washington
+- Spread love everywhere you go. Let no one leave you without being happier. — Mother Teresa
+- No act of kindness, no matter how small, is ever wasted. — Aesop
+- The best preparation for tomorrow is doing your best today. — H. Jackson Brown
+- Courage is not the absence of fear, but the triumph over it. — Nelson Mandela
+- It's not whether you get knocked down, it's whether you get up. — Vince Lombardi
+- Not how long, but how well you have lived is the main thing. — Seneca
+- You are the sky. Everything else is just the weather. — Pema Chödrön
+- Everything you've ever wanted is on the other side of fear. — George Addair
+- Life finds a way. — Jurassic Park
+- There is no spoon. — The Matrix
+- Free your mind. — The Matrix
+- You had me at hello. — Jerry Maguire
+- It's not your fault. — Good Will Hunting
+- With great power comes great responsibility. — Spider-Man
+- Wax on, wax off. — The Karate Kid
+- This is the way. — The Mandalorian
+- After all this time? Always. — Harry Potter
+- Make it so. — Star Trek
+- Space: the final frontier. — Star Trek
+- Enjoy the little things. — Zombieland
+- May the odds be ever in your favor. — The Hunger Games
+- That's one small step for man, one giant leap for mankind. — Neil Armstrong
+- Today I consider myself the luckiest man on the face of the earth. — Lou Gehrig
+- The arc of the moral universe is long, but it bends toward justice. — Martin Luther King Jr.
+- Yes we can. — Barack Obama
+- There is no greater agony than bearing an untold story inside you. — Maya Angelou
+- When one door closes, another opens. — Alexander Graham Bell
+- Be so good they can't ignore you. — Steve Martin
+- Leap, and the net will appear. — John Burroughs
+- If you can dream it, you can do it. — Walt Disney
+- The way to get started is to quit talking and begin doing. — Walt Disney
+- Whatever you do, do it well. — Walt Disney
+- We read to know we are not alone. — C.S. Lewis
+- So many books, so little time. — Frank Zappa
+- A room without books is like a body without a soul. — Cicero
+- Once you learn to read, you will be forever free. — Frederick Douglass
+- There is no friend as loyal as a book. — Ernest Hemingway
+- This above all: to thine own self be true. — Shakespeare
+- There is nothing either good or bad, but thinking makes it so. — Shakespeare
+- Love all, trust a few, do wrong to none. — Shakespeare
+- We know what we are, but know not what we may be. — Shakespeare
+- Books let you travel without moving your feet. — Jhumpa Lahiri
+- Fortune favors the bold. — Virgil
+- Know thyself. — Socrates
+- The unexamined life is not worth living. — Socrates
+- I think, therefore I am. — Descartes
+- Not everyone can become a great artist, but a great artist can come from anywhere. — Ratatouille
+- Anyone can cook. — Ratatouille
+- Some people are worth melting for. — Frozen
+- Love is putting someone else's needs before yours. — Frozen
+- Today is a good day to try. — Hunchback of Notre Dame
+- This is my family. I found it all on my own. — Lilo & Stitch
+- As you wish. — The Princess Bride
+- I can do this all day. — Captain America
+- In times of crisis the wise build bridges, while the foolish build barriers. — Black Panther
+- Anyone can wear the mask. — Into the Spider-Verse
+- We are Groot. — Guardians of the Galaxy
+- Rebellions are built on hope. — Rogue One
+- Luminous beings are we, not this crude matter. — Star Wars
+- If you build it, he will come. — Field of Dreams
+- I'm the king of the world! — Titanic
+- Nobody puts Baby in a corner. — Dirty Dancing
+- Sucking at something is the first step to being sorta good at something. — Adventure Time
+- Onward. Forward. — Ted Lasso
+- Things are only impossible until they're not. — Star Trek
+- The needs of the many outweigh the needs of the few. — Star Trek
+- A mind needs books as a sword needs a whetstone. — Game of Thrones
+- Every flight begins with a fall. — Game of Thrones
+- You have been my friend. That in itself is a tremendous thing. — Charlotte's Web
+- You become responsible, forever, for what you have tamed. — The Little Prince
+- It is the time you have wasted for your rose that makes your rose so important. — The Little Prince
+- People say nothing is impossible, but I do nothing every day. — Winnie-the-Pooh
+- Doing nothing often leads to the very best of something. — Winnie-the-Pooh
+- Rivers know this: there is no hurry. We shall get there some day. — Winnie-the-Pooh
+- Deeds will not be less valiant because they are unpraised. — The Lord of the Rings
+- I will not say: do not weep; for not all tears are an evil. — The Lord of the Rings
+- Those who don't believe in magic will never find it. — Roald Dahl
+- A little nonsense now and then is relished by the wisest men. — Roald Dahl
+- Don't cry because it's over, smile because it happened. — Dr. Seuss
+- Today you are You, that is truer than true. — Dr. Seuss
+- Unless someone like you cares a whole awful lot, nothing is going to get better. — The Lorax
+- I am no bird; and no net ensnares me. — Jane Eyre
+- You can never get a cup of tea large enough or a book long enough to suit me. — C.S. Lewis
+- We are all in the gutter, but some of us are looking at the stars. — Oscar Wilde
+- Be yourself; everyone else is already taken. — Oscar Wilde
+- To live is the rarest thing in the world. Most people exist, that is all. — Oscar Wilde
+- It's not the years in your life that count. It's the life in your years. — Abraham Lincoln
+- We choose to go to the moon, not because it is easy, but because it is hard. — John F. Kennedy
+- Keep calm and carry on. — British wartime poster
+- Nobody can make you feel inferior without your consent. — Eleanor Roosevelt
+- Do one thing every day that scares you. — Eleanor Roosevelt
+- Nothing will work unless you do. — Maya Angelou
+- The most difficult thing is the decision to act. The rest is merely tenacity. — Amelia Earhart
+- Adventure is worthwhile in itself. — Amelia Earhart
+- Optimism is the faith that leads to achievement. — Helen Keller
+- Life is like riding a bicycle. To keep your balance you must keep moving. — Albert Einstein
+- A person who never made a mistake never tried anything new. — Albert Einstein
+- Twenty years from now you will be more disappointed by the things you didn't do. — Mark Twain
+- The man who moves a mountain begins by carrying away small stones. — Confucius
+- Let yourself be silently drawn by the strange pull of what you really love. — Rumi
+- Great things are done by a series of small things brought together. — Vincent van Gogh
+- I would rather die of passion than of boredom. — Vincent van Gogh
+- Whoever is happy will make others happy too. — Anne Frank
+- Think of all the beauty still left around you and be happy. — Anne Frank
+- If you can't feed a hundred people, then feed just one. — Mother Teresa
+- Nothing in life is to be feared, it is only to be understood. — Marie Curie
+- Luck is what happens when preparation meets opportunity. — Seneca
+- Every new beginning comes from some other beginning's end. — Seneca
+- The happiness of your life depends upon the quality of your thoughts. — Marcus Aurelius
+- Live as if you were to die tomorrow. Learn as if you were to live forever. — Gandhi
+- You can do anything, but not everything. — David Allen
+- Perfect is the enemy of good. — Voltaire
+- A ship in harbor is safe, but that is not what ships are built for. — John A. Shedd
+- Well done is better than well said. — Benjamin Franklin
+- Energy and persistence conquer all things. — Benjamin Franklin
+- Little strokes fell great oaks. — Benjamin Franklin
+- Slow and steady wins the race. — Aesop
+- Hard choices, easy life. Easy choices, hard life. — Jerzy Gregorek
+- Done is better than perfect. — Sheryl Sandberg
+- We don't make mistakes, just happy little accidents. — Bob Ross
+- There's nothing wrong with having a tree as a friend. — Bob Ross
+- Talent is a pursued interest. — Bob Ross
+- Look for the helpers. You will always find people who are helping. — Mister Rogers
+- You've made this day a special day, by just your being you. — Mister Rogers
+- We're all stories in the end. Just make it a good one. — Doctor Who
+- Laugh hard, run fast, be kind. — Doctor Who
+- Be curious, not judgmental. — Ted Lasso
+- Never half-ass two things. Whole-ass one thing. — Ron Swanson
+- No man is a failure who has friends. — It's a Wonderful Life
+- Each man's life touches so many other lives. — It's a Wonderful Life
+- Louis, I think this is the beginning of a beautiful friendship. — Casablanca
+- There is always hope. — The Lord of the Rings
+- There is more in you of good than you know. — The Hobbit
+- Look inside yourself. You are more than what you have become. — The Lion King
+- Remember who you are. — The Lion King
+- One often meets his destiny on the road he takes to avoid it. — Kung Fu Panda
+- Fish are friends, not food. — Finding Nemo
+- Hope is the only thing stronger than fear. — The Hunger Games
+- Your focus determines your reality. — Star Wars
+- The Force will be with you, always. — Star Wars
+- Never tell me the odds. — Star Wars
+- Part of the journey is the end. — Avengers: Endgame
+- So shines a good deed in a weary world. — Willy Wonka
+- We are the music makers, and we are the dreamers of dreams. — Willy Wonka
+- Nobody can be uncheered with a balloon. — Winnie the Pooh
+- If you don't know where you're going, any road will get you there. — Lewis Carroll
+- If you have good thoughts they will shine out of your face like sunbeams. — Roald Dahl
+- Never do anything by halves if you want to get away with it. — Roald Dahl
+- If you look the right way, the whole world is a garden. — The Secret Garden
+- I am not afraid of storms, for I am learning how to sail my ship. — Little Women
+- You are your best thing. — Toni Morrison
+- If there's a book you want to read that isn't written yet, write it. — Toni Morrison
+- If this isn't nice, what is? — Kurt Vonnegut
+- Make good art. — Neil Gaiman
+- It's still magic even if you know how it's done. — Terry Pratchett
+- It is good to have an end to journey toward; but it is the journey that matters. — Ursula K. Le Guin
+- Love doesn't just sit there like a stone; it has to be made, like bread. — Ursula K. Le Guin
+- We are made of star stuff. — Carl Sagan
+- For small creatures such as we, the vastness is bearable only through love. — Carl Sagan
+- Nature does not hurry, yet everything is accomplished. — Lao Tzu
+- Life is really simple, but we insist on making it complicated. — Confucius
+- Be kind whenever possible. It is always possible. — Dalai Lama
+- Let the beauty of what you love be what you do. — Rumi
+- Raise your words, not your voice. It is rain that grows flowers, not thunder. — Rumi
+- Smile, breathe, and go slowly. — Thich Nhat Hanh
+- Very little is needed to make a happy life. — Marcus Aurelius
+- It's not what happens to you, but how you react that matters. — Epictetus
+- He who has a why to live can bear almost any how. — Nietzsche
+- No one has ever become poor by giving. — Anne Frank
+- Although the world is full of suffering, it is also full of the overcoming of it. — Helen Keller
+- We make a living by what we get, but we make a life by what we give. — Winston Churchill
+- Kites rise highest against the wind. — Winston Churchill
+- Imagination is more important than knowledge. — Albert Einstein
+- Wrinkles should merely indicate where smiles have been. — Mark Twain
+- Keep your eyes on the stars, and your feet on the ground. — Theodore Roosevelt
+- The only person you are destined to become is the person you decide to be. — Emerson
+- I went to the woods because I wished to live deliberately. — Thoreau
+- It ain't over till it's over. — Yogi Berra
+- Don't count the days, make the days count. — Muhammad Ali
+- Find out who you are and do it on purpose. — Dolly Parton
+- Storms make trees take deeper roots. — Dolly Parton
+- People who love to eat are always the best people. — Julia Child
+- A party without cake is just a meeting. — Julia Child
+- The most effective way to do it, is to do it. — Amelia Earhart
+- For beautiful eyes, look for the good in others. — Audrey Hepburn
+- Peace begins with a smile. — Mother Teresa
+- All we have to decide is what to do with the time given us. — The Lord of the Rings
+- When you reach the end of your rope, tie a knot and hang on. — Franklin D. Roosevelt
+- And though she be but little, she is fierce. — Shakespeare
+- There are far better things ahead than any we leave behind. — C.S. Lewis
+- Courage, dear heart. — C.S. Lewis
+- What we achieve inwardly will change outer reality. — Plutarch
+- When I let go of what I am, I become what I might be. — Lao Tzu
+- The flower that blooms in adversity is the rarest of all. — Mulan
+- The best thing to hold onto in life is each other. — Audrey Hepburn
+- If you can't fly then run, if you can't run then walk. — Martin Luther King Jr.
+- Nothing can dim the light that shines from within. — Maya Angelou
+- Kid, you'll move mountains. — Dr. Seuss
+- You are enough, just as you are. — Bridget Jones
+- The best is yet to come. — Frank Sinatra
+- Once you replace negative thoughts with positive ones, you'll start having positive results. — Willie Nelson
+- The two most important days in your life are the day you are born and the day you find out why. — Mark Twain
+- Have courage and be kind. — Cinderella
+- The smallest act of kindness is worth more than the grandest intention. — Oscar Wilde
+- Slow down and everything you are chasing will come around and catch you. — John De Paola
+- That is the only time a man can be brave — when he is afraid. — Game of Thrones
+- Any dream worth having is a dream worth fighting for. — Sex and the City
+- The night is darkest just before the dawn. And I promise you, the dawn is coming. — The Dark Knight
+- Try not to become a person of success, but rather a person of value. — Albert Einstein
+- The best way to find yourself is to lose yourself in the service of others. — Gandhi
+- The journey of a thousand miles begins with one step. — Lao Tzu
+- There is no charge for awesomeness. Or attractiveness. — Kung Fu Panda
+- Wonder is the beginning of wisdom. — Socrates
+- Whether you think you can or you think you can't, you're right. — Henry Ford
+- Courage is grace under pressure. — Ernest Hemingway
+- Not everything that is faced can be changed, but nothing can be changed until it is faced. — James Baldwin
+- Keep your face always toward the sunshine and shadows will fall behind you. — Walt Whitman
+- That it will never come again is what makes life so sweet. — Emily Dickinson
+- Hope is the thing with feathers that perches in the soul. — Emily Dickinson
+- Vulnerability is the birthplace of courage. — Brené Brown
+- Life shrinks or expands in proportion to one's courage. — Anaïs Nin
+- And, when you want something, all the universe conspires in helping you to achieve it. — The Alchemist
+- Almost everything will work again if you unplug it for a few minutes, including you. — Anne Lamott
+- Do the best you can until you know better. Then when you know better, do better. — Maya Angelou
+- Be a goldfish. Happiest animal on earth. Ten-second memory. — Ted Lasso
+- Bears. Beets. Battlestar Galactica. — The Office
+- I am running away from my responsibilities. And it feels good. — Michael Scott
+- I love you and I like you. — Parks and Recreation
+- Everything is going to be totally okay. — Parks and Recreation
+- How you doin'? — Friends
+- He's her lobster. — Friends
+- The only people for me are the mad ones, the ones mad to live. — On the Road
+- In 900 years of time and space, I've never met anyone who wasn't important. — Doctor Who
+- The good things don't always soften the bad things, but the bad don't spoil the good. — Doctor Who
+- It is possible to commit no mistakes and still lose. That is not weakness. — Star Trek
+- Happiness can be found even in the darkest of times, if one remembers to turn on the light. — Harry Potter
+- What makes the desert beautiful is that somewhere it hides a well. — The Little Prince
+- Would you tell me, please, which way I ought to go from here? — Alice in Wonderland
+- Why, sometimes I've believed as many as six impossible things before breakfast. — Alice in Wonderland
+- We're all mad here. I'm mad. You're mad. But the best people usually are. — Cheshire Cat
+- Once you are real you can't become unreal again. It lasts for always. — The Velveteen Rabbit
+- There is nothing like staying at home for real comfort. — Jane Austen
+- You can't connect the dots looking forward; only looking backward. — Steve Jobs
+- May your choices reflect your hopes, not your fears. — Nelson Mandela
+- You gain strength, courage, and confidence by every experience in which you stop to look fear in the face. — Eleanor Roosevelt
+- It is during our darkest moments that we must focus to see the light. — Aristotle
+- Kind words can be short and easy to speak, but their echoes are truly endless. — Mother Teresa
+- Kindness is a language which the deaf can hear and the blind can see. — Mark Twain
+- Blessed are the weird people: the poets, misfits, makers, and troublemakers. — Jacob Nordby
+- To love and be loved is to feel the sun from both sides. — David Viscott
+- You is smart. You is kind. — The Help
+- Nothing is worth more than this day. — Goethe
+- Let us be grateful to people who make us happy. — Marcel Proust
+- Try a little harder to be a little better. — Gordon Hinckley
+- Enjoy the little things, for one day you may look back and realize they were the big things. — Robert Brault
+- You can't go back and change the beginning, but you can start where you are and change the ending. — C.S. Lewis
+- Some people feel the rain. Others just get wet. — Bob Marley
+- There is no charm equal to tenderness of heart. — Jane Austen
+- Love the moment, and the energy of that moment will spread beyond all boundaries. — Corita Kent
+- To be yourself in a world constantly trying to make you something else is the greatest accomplishment. — Emerson
+- Rest is not idleness. — John Lubbock
+- Adopt the pace of nature: her secret is patience. — Emerson
+- Tell me, what is it you plan to do with your one wild and precious life? — Mary Oliver
+- Instructions for living a life: pay attention, be astonished, tell about it. — Mary Oliver
+- You do not have to be good. You only have to let the soft animal of your body love what it loves. — Mary Oliver
+- And still, like dust, I'll rise. — Maya Angelou
+- People will forget what you said, but never how you made them feel. — Maya Angelou
+- Have a heart that never hardens, a temper that never tires. — Charles Dickens
+- It is a far, far better rest that I go to than I have ever known. — A Tale of Two Cities
+- Whatever our souls are made of, his and mine are the same. — Wuthering Heights
+- So we beat on, boats against the current. — The Great Gatsby
+- I took the one less traveled by, and that has made all the difference. — Robert Frost
+- In three words I can sum up everything about life: it goes on. — Robert Frost
+- The woods are lovely, dark and deep. — Robert Frost
+- Our fate lives within us. You only have to be brave enough to see it. — Brave
+- That's my family, Kevin. They may be jerks, but they're mine. — Home Alone
+- All our dreams can come true if we have the courage to pursue them. — Walt Disney
+- Laughter is timeless, imagination has no age. — Walt Disney
+- Around here we don't look backwards for very long. — Walt Disney
+- You must do the things you think you cannot do. — Eleanor Roosevelt
+- With the new day comes new strength and new thoughts. — Eleanor Roosevelt
+- If I cannot do great things, I can do small things in a great way. — Martin Luther King Jr.
+- Look up at the stars and not down at your feet. — Stephen Hawking
+- However bad life may seem, while there is life, there is hope. — Stephen Hawking
+- I believe in hope. I believe in belief. — Ted Lasso
+- It's the ship that made the Kessel Run in less than twelve parsecs. — Star Wars
+- Isn't it funny how day by day nothing changes, but when you look back everything is different. — C.S. Lewis
+- There are years that ask questions and years that answer. — Zora Neale Hurston
+- It takes courage to grow up and become who you really are. — E.E. Cummings
+- We do not remember days, we remember moments. — Cesare Pavese
+- Talk to yourself like someone you love. — Brené Brown
+- The purpose of life is to be defeated by greater and greater things. — Rilke
+- Let everything happen to you: beauty and terror. Just keep going. — Rilke
+- Be patient toward all that is unsolved in your heart. — Rilke
+- Hakuna matata — no worries. — The Lion King
+- The quieter you become, the more you are able to hear. — Rumi
+- Try to be a rainbow in someone's cloud. — Maya Angelou
+- If you think you're too small to matter, meet a mosquito. — Dalai Lama
+- We must accept finite disappointment, but never lose infinite hope. — Martin Luther King Jr.
+- Whatever you can do, or dream you can, begin it. — Goethe
+- Peace comes from within. Do not seek it without. — Buddha
+- I exist as I am, that is enough. — Walt Whitman
+- Hardships often prepare ordinary people for an extraordinary destiny. — C.S. Lewis
+- Tough times never last, but tough people do. — R. Schuller
+- A hero is measured by the strength of his heart. — Hercules
+- That'll do, pig. That'll do. — Babe
+- To love another person is to see the face of God. — Les Misérables
+- Not all treasure is silver and gold, mate. — Pirates of the Caribbean
+- It is our choices that show what we truly are. — Harry Potter
+- We've all got both light and dark inside us. — Sirius Black
+- We can do no great things, only small things with great love. — Mother Teresa
+- Begin at the beginning, and go on till you come to the end. — Alice in Wonderland
+- It is not the mountain we conquer, but ourselves. — Edmund Hillary
+- New beginnings are often disguised as painful endings. — Lao Tzu
+- At the center of your being, you have the answer. — Lao Tzu
+- Knowing yourself is the beginning of all wisdom. — Aristotle
+- Choose a job you love and never work a day in your life. — Confucius
+- Give light, and people will find the way. — Ella Baker
+- We rise by lifting others. — Robert Ingersoll
+- Change the world by being yourself. — Amy Poehler
+- I like you very much, just as you are. — Bridget Jones's Diary
+- Once more unto the breach, dear friends. — Henry V
+- Screw your courage to the sticking place. — Macbeth
+- Do what you feel in your heart to be right. — Eleanor Roosevelt
+- You've always had the power, my dear. You just had to learn it. — The Wizard of Oz
+- I can't go back to yesterday, because I was a different person then. — Alice in Wonderland
+- Happiness is a warm puppy. — Charles Schulz
+- There is some good in this world, and it is worth fighting for. — The Lord of the Rings
+- A person is a person, no matter how small. — Dr. Seuss
+- Oh, the places you will go. — Dr. Seuss
+- You are off to great places. Today is your day. — Dr. Seuss
+- Mischief managed. — Harry Potter
+- You are never too old to set another goal or dream a new dream. — C.S. Lewis
+- Once a king or queen of Narnia, always a king or queen. — Narnia
+- Nothing is impossible. The word itself says I am possible. — Audrey Hepburn
+- It always seems impossible until it is done. — Nelson Mandela
+- Do not panic. — Hitchhiker's Guide
+- I am not superstitious, but I am a little stitious. — The Office
+- The best way to predict the future is to invent it. — Alan Kay
+- Real artists ship. — Steve Jobs
+- Every child is an artist. — Picasso
+- I dream my painting and I paint my dream. — Van Gogh
+- What would life be if we had no courage to attempt anything? — Van Gogh
+- The earth laughs in flowers. — Emerson
+- It is not what you look at that matters, it is what you see. — Thoreau
+- There is no place like home. — The Wizard of Oz
+- Here is looking at you, kid. — Casablanca
+- Wakanda forever. — Black Panther
+- So long, and thanks for all the fish. — Hitchhiker's Guide
+- Everything will be okay in the end. — John Lennon
+- Simplify, simplify. — Thoreau
+- The world is full of magic things, patiently waiting for our senses to grow sharper. — W.B. Yeats
+- I am among those who think that science has great beauty. — Marie Curie
+- You miss one hundred percent of the shots you do not take. — Wayne Gretzky
+- It is kind of fun to do the impossible. — Walt Disney
+- Life is what happens when you are busy making other plans. — John Lennon
+- Tell me and I forget. Involve me and I learn. — Benjamin Franklin
+- Be kind, for everyone you meet is fighting a hard battle. — Ian Maclaren
+- Wherever you are, be all there. — Jim Elliot
+- The mountains are calling and I must go. — John Muir
+- In every walk with nature one receives far more than he seeks. — John Muir
+- The best remedy for those who are unhappy is to go outside. — Anne Frank
+- I declare after all there is no enjoyment like reading. — Jane Austen
+- The best way to cheer yourself is to cheer somebody else up. — Mark Twain
+- Follow your bliss. — Joseph Campbell
+- The cave you fear to enter holds the treasure you seek. — Joseph Campbell
+- We must let go of the life we planned to have the life waiting for us. — Joseph Campbell
+- I love you three thousand. — Avengers: Endgame
+- On your left. — Captain America
+- Avengers, assemble. — Avengers: Endgame
+- Size matters not. — Star Wars
+- Patience you must have. — Star Wars
+- Always pass on what you have learned. — Star Wars
+- You must strive to find your own voice. — Dead Poets Society
+- If you put your mind to it, you can accomplish anything. — Back to the Future
+- Your future is whatever you make it, so make it a good one. — Back to the Future
+- Stupid is as stupid does. — Forrest Gump
+- To boldly go where no one has gone before. — Star Trek
+- Elementary, my dear Watson. — Sherlock Holmes
+- The game is afoot. — Sherlock Holmes
+- Slow is smooth, smooth is fast. — adage
+- Toto, I have a feeling we are not in Kansas anymore. — The Wizard of Oz
+- There is no crying in baseball. — A League of Their Own
+- Roads? Where we are going we do not need roads. — Back to the Future
+- Everything that is done in the world is done by hope. — Martin Luther
+- Of all the paths you take, make sure a few of them are dirt. — John Muir
+- I know that I know nothing. — Socrates
+- Sometimes you have to run before you can walk. — Iron Man
+- E.T. phone home. — E.T.
+- Pivot! — Friends
+- The past can hurt. But the way I see it, you can either run from it or learn from it. — The Lion King
+- Ohana means family. Family means nobody gets left behind or forgotten. — Lilo & Stitch
+- You have to put the past behind you before you can move on. — The Lion King
+- The only thing predictable about life is its unpredictability. — Ratatouille
+- Yesterday is history, tomorrow is a mystery, but today is a gift. — Kung Fu Panda
+- Your identity is your most valuable possession. Protect it. — The Incredibles
+- The nicest thing about the rain is that it always stops. Eventually. — Eeyore
+- If you focus on what you left behind, you will never see what lies ahead. — Ratatouille
+- It's the possibility of having a dream come true that makes life interesting. — The Alchemist
+- Anyone can be anything. — Zootopia
+- That's the thing about pain. It demands to be felt. — The Fault in Our Stars
+- So it goes. — Kurt Vonnegut
+- You may not control all the events that happen to you, but you can decide not to be reduced by them. — Maya Angelou
+- I have not failed. I've just found ten thousand ways that won't work. — Thomas Edison
+- It's the lack of curiosity that gets us into trouble. — Ted Lasso
+- Taking on a challenge is a lot like riding a horse. If you're comfortable while you're doing it, you're probably doing it wrong. — Ted Lasso
+- For me, success is not about the wins and losses. It's about helping these young fellas be the best versions of themselves. — Ted Lasso
+- There's two buttons I never like to hit: panic and snooze. — Ted Lasso
+- Live in the present. It's the only moment that matters. — Kung Fu Panda
+- I'm gonna be all the things to the universe that the universe was to me. — EEAAO
+- In another life, I would have really liked just doing laundry and taxes with you. — EEAAO
+- The only way to get through it is to do everything with love. — EEAAO
+- Just be a nice human. — Ted Lasso
+- The way I see it, every life is a pile of good things and bad things. — Doctor Who
+- Never be cruel, never be cowardly. And never ever eat pears. — Doctor Who
+- Life moves pretty fast. If you don't stop and look around once in a while, you could miss it. — Ferris Bueller
+- Carpe diem. Seize the day, boys. Make your lives extraordinary. — Dead Poets Society
+- That the powerful play goes on, and you may contribute a verse. — Dead Poets Society
+- You'll have bad times, but it'll always wake you up to the good stuff you weren't paying attention to. — Good Will Hunting
+- My mama always said life was like a box of chocolates. You never know what you're gonna get. — Forrest Gump
+- Times are hard for dreamers. — Amélie
+- You have to keep breathing. Because tomorrow the sun will rise. Who knows what the tide could bring? — Cast Away
+- Each small task of everyday life is part of the total harmony of the universe. — Saint Thérèse
+- It is only with the heart that one can see rightly; what is essential is invisible to the eye. — The Little Prince
+- All grown-ups were once children, but only few of them remember it. — The Little Prince
+- Real isn't how you are made. It's a thing that happens to you. — The Velveteen Rabbit
+- Promise me you'll always remember: you're braver than you believe, and stronger than you seem. — Winnie the Pooh
+- If ever there is tomorrow when we're not together, keep me in your heart, I'll stay there forever. — Winnie the Pooh
+- The greatest glory in living lies not in never falling, but in rising every time we fall. — Nelson Mandela
+- For there is always light, if only we're brave enough to see it. — Amanda Gorman
+- Go confidently in the direction of your dreams. Live the life you have imagined. — Thoreau
+- What lies behind us and what lies before us are tiny matters compared to what lies within us. — Emerson
+- Just keep going. Everybody gets scared. — The Terminal
+- I dwell in possibility. — Emily Dickinson
+- Once you learn to quit, it becomes a habit. So we never quit. — Rocky
+- It ain't about how hard you hit. It's about how hard you can get hit and keep moving forward. — Rocky
+- You have more courage than you think. — Winnie the Pooh
+- In my experience, there's no such thing as luck. — Star Wars
+- You do not just wake up and become the butterfly. — Rupi Kaur
+- The only way out of the labyrinth of suffering is to forgive. — John Green
+- Some infinities are bigger than other infinities. — The Fault in Our Stars
+- The most courageous act is still to think for yourself. Aloud. — Coco Chanel
+- If you surrender to the wind, you can ride it. — Toni Morrison
+- We are a way for the cosmos to know itself. — Carl Sagan
+- Courage starts with showing up and letting ourselves be seen. — Brené Brown
+- Keep some room in your heart for the unimaginable. — Mary Oliver
+- The world offers itself to your imagination. — Mary Oliver
+- What you can plan is too small for you to live. — David Whyte
+- Anything or anyone that does not bring you alive is too small for you. — David Whyte
+- Bird by bird, buddy. Just take it bird by bird. — Anne Lamott
+- Only those who dare to fail greatly can ever achieve greatly. — Robert Kennedy
+- It's supposed to be hard. The hard is what makes it great. — A League of Their Own
+- Take it easy, but take it. — Studs Terkel
+- The soul should always stand ajar, ready to welcome the ecstatic experience. — Emily Dickinson
+- We are all worms, but I do believe I am a glow-worm. — Winston Churchill
+- Far away in the sunshine are my highest aspirations. — Louisa May Alcott
+- The moment you doubt whether you can fly, you cease forever to be able to do it. — Peter Pan
+- All you need is faith, trust, and a little bit of pixie dust. — Peter Pan
+- See the line where the sky meets the sea? It calls me. — Moana
+- The ocean chose you for a reason. — Moana
+- Family is more than blood. — Encanto
+- Just because you find that life's not fair, it doesn't mean you have to sit down and take it. — Roald Dahl
+- Would you like an adventure now, or shall we have tea first? — Peter Pan
+- There is nothing impossible to they who will try. — Alexander the Great
+- The credit belongs to the one who is actually in the arena. — Theodore Roosevelt
+- Be somebody who makes everybody feel like a somebody. — Kid President
+- Treat people like they're famous. — Kid President
+- You can't cross the sea merely by standing and staring at the water. — Tagore
+- Let your life lightly dance on the edges of time like dew on the tip of a leaf. — Tagore
+- Faith is the bird that feels the light when the dawn is still dark. — Tagore
+- The best and most beautiful things in the world cannot be seen or touched, but felt with the heart. — Helen Keller
+- How wonderful it is that nobody need wait a single moment before starting to improve the world. — Anne Frank
+- Between stimulus and response there is a space, and in that space is our freedom. — Viktor Frankl
+- When we are no longer able to change a situation, we are challenged to change ourselves. — Viktor Frankl
+- Feel the fear and do it anyway. — Susan Jeffers
+- Fear is a reaction. Courage is a decision. — Winston Churchill
+- Waste no more time arguing about what a good person should be. Be one. — Marcus Aurelius
+- You have power over your mind, not outside events. Realize this, and you will find strength. — Marcus Aurelius
+- Little friends may prove great friends. — Aesop
+- It is not down on any map; true places never are. — Herman Melville
+- We cannot direct the wind, but we can adjust the sails. — Dolly Parton
+- If you want the rainbow, you gotta put up with the rain. — Dolly Parton
+- Every day holds the possibility of a miracle. — Elizabeth David
+- And the day came when the risk to remain tight in a bud was more painful than the risk to blossom. — Anaïs Nin
+- We don't see things as they are, we see them as we are. — Anaïs Nin
+- The privilege of a lifetime is to become who you truly are. — Carl Jung
+- Your vision will become clear only when you can look into your own heart. — Carl Jung
+- Once you make a decision, the universe conspires to make it happen. — Emerson
+- Wanting to be someone else is a waste of who you are. — Kurt Cobain
+- The present moment is filled with joy and happiness. If you are attentive, you will see it. — Thich Nhat Hanh
+- Because you are alive, everything is possible. — Thich Nhat Hanh
+- Walk as if you are kissing the earth with your feet. — Thich Nhat Hanh
+- We'll always have Paris. — Casablanca
+- You complete me. — Jerry Maguire
+- Life is a banquet, and most poor suckers are starving to death. — Auntie Mame
+- What you do makes a difference, and you have to decide what kind you want to make. — Jane Goodall
+- Only in the darkness can you see the stars. — Martin Luther King Jr.
+- Hope is being able to see light despite all of the darkness. — Desmond Tutu
+- Do your little bit of good where you are. — Desmond Tutu
+- Courage is like a muscle. We strengthen it by use. — Ruth Gordon
+- The best way to find out if you can trust somebody is to trust them. — Ernest Hemingway
+- Every strike brings me closer to the next home run. — Babe Ruth
+- An investment in knowledge pays the best interest. — Benjamin Franklin
+- By failing to prepare, you are preparing to fail. — Benjamin Franklin
+- Real knowledge is to know the extent of one's ignorance. — Confucius
+- Well begun is half done. — Aristotle
+- A friend is one soul in two bodies. — Aristotle
+- Patience is bitter, but its fruit is sweet. — Aristotle
+- You will never do anything in this world without courage. — Aristotle
+- Hard work beats talent when talent doesn't work hard. — Tim Notke
+- Champions keep playing until they get it right. — Billie Jean King
+- Pressure is a privilege. — Billie Jean King
+- The more difficult the victory, the greater the happiness in winning. — Pelé
+- And now these three remain: faith, hope, and love; the greatest is love. — 1 Corinthians
+- Love is patient, love is kind. — 1 Corinthians
+- Be strong and courageous; do not be afraid. — Joshua 1:9
+- All that is gold does not glitter. — J.R.R. Tolkien
+- The road goes ever on and on. — J.R.R. Tolkien
+- The more that you read, the more things you will know. — Dr. Seuss
+- From there to here, from here to there, funny things are everywhere. — Dr. Seuss
+- I meant what I said and I said what I meant. — Dr. Seuss
+- A very small heart can hold a rather large amount of gratitude. — Winnie the Pooh
+- A journey is best measured in friends, not miles. — Tim Cahill
+- You cannot have a positive life and a negative mind. — Joyce Meyer
+- You must not lose faith in humanity. Humanity is an ocean. — Gandhi
+- The weak can never forgive. Forgiveness is the attribute of the strong. — Gandhi
+- A smile is the shortest distance between two people. — Victor Borge
+- Everyone is a genius. But don't judge a fish by its ability to climb a tree. — Albert Einstein
+- If you're always trying to be normal, you'll never know how amazing you are. — Maya Angelou
+- You don't have to be great to start, but you have to start to be great. — Zig Ziglar
+- Gratitude turns what we have into enough. — Melody Beattie
+- No one is useless who lightens the burdens of another. — Charles Dickens
+- Nothing is so contagious as laughter and good humour. — Charles Dickens
+- We are all a little weird, and life's a little weird too. — Robert Fulghum
+- No exercise is better for the heart than reaching down and lifting others up. — John Holmes
+- When you have a dream, you've got to grab it and never let go. — Carol Burnett
+- The purpose of our lives is to be happy. — Dalai Lama
+- If you can, help others; if you can't, at least don't harm them. — Dalai Lama
+- Give those you love wings to fly, roots to come back. — Dalai Lama
+- The man who asks is a fool for a minute; the one who never asks stays one. — Confucius
+- The energy of the mind is the essence of life. — Aristotle
+- Fear cuts deeper than swords. — Game of Thrones
+- You have bewitched me, body and soul. — Pride and Prejudice
+- The only way out is through. — Robert Frost
+- Change is good. — The Lion King
+- A hero can be anyone. — The Dark Knight Rises
+- Great men are not born great, they grow great. — The Godfather
+- No matter what anybody tells you, words and ideas can change the world. — Dead Poets Society
+- You had my curiosity, now you have my attention. — Django Unchained
+- There is no fate but what we make for ourselves. — Terminator
+- They may take our lives, but they'll never take our freedom! — Braveheart
+- Winter is coming. — Game of Thrones
+- That's what I do: I drink and I know things. — Game of Thrones
+- Yada yada yada. — Seinfeld
+- The truth is out there. — The X-Files
+- I'll be there for you. — Friends
+- Isn't it nice to think that tomorrow is a new day with no mistakes in it yet? — Anne of Green Gables
+- Whatever you do, do it with all your might. — Cicero
+- That which does not kill us makes us stronger. — Nietzsche
+- Ask not what your country can do for you. — John F. Kennedy
+- A pessimist sees difficulty in every opportunity; an optimist sees opportunity in every difficulty. — Winston Churchill
+- You have brains in your head and feet in your shoes; you can steer yourself. — Dr. Seuss
+- Happiness is not something ready made; it comes from your own actions. — Dalai Lama
+- Treat yourself. — Parks and Rec
+- The magic is in you. It always was. — The Wizard of Oz
+- Once you have flown, you will walk the earth with your eyes turned skyward. — da Vinci
+- I took a deep breath and listened to the old brag of my heart: I am, I am, I am. — Sylvia Plath
+- Someday you will be old enough to start reading fairy tales again. — C.S. Lewis
+- We suffer more often in imagination than in reality. — Seneca
+- Courage is resistance to fear, mastery of fear, not absence of fear. — Mark Twain
+- Happiness depends upon ourselves. — Aristotle
+- My mission in life is not merely to survive, but to thrive. — Maya Angelou
+- The important thing is not to stop questioning. — Albert Einstein
+- Our greatest weakness lies in giving up. — Thomas Edison
+- The more you like yourself, the less you are like anyone else. — Walt Disney
+- Not until we are lost do we begin to understand ourselves. — Thoreau
+- Your mind is like this water, my friend; when it is agitated, it becomes difficult to see. — Kung Fu Panda
+- There is no secret ingredient. It's just you. — Kung Fu Panda
+- Remember me, though I have to say goodbye. — Coco
+- The seas may be rough, but I am the captain. — Moana
+- Sometimes the right path is not the easiest one. — Pocahontas
+- Maybe there's a little more to me than you thought. — How to Train Dragon
+- The past is in the past. — Frozen
+- Do you know what's more important than talent? Showing up. — Soul
+- Success is stumbling from failure to failure with no loss of enthusiasm. — Winston Churchill
+- You are more powerful than you know; you are beautiful just as you are. — Elton John
+- Success is liking yourself, liking what you do, and liking how you do it. — Maya Angelou
+- You are imperfect, you are wired for struggle, but you are worthy of love. — Brené Brown
+- Owning our story and loving ourselves is the bravest thing we'll ever do. — Brené Brown
+- Curiouser and curiouser! — Alice in Wonderland
+- You are not a drop in the ocean; you are the entire ocean in a drop. — Rumi
+- And you? When will you begin that long journey into yourself? — Rumi
+- You never really understand a person until you consider things from his point of view. — To Kill a Mockingbird
+- It's a good thing to be strange. Normalness leads to sadness. — Phil Lord
+- We are here on Earth to fart around, and don't let anybody tell you different. — Kurt Vonnegut
+- Everything was beautiful and nothing hurt. — Kurt Vonnegut
+- A day without a friend is like a pot with not a single drop of honey left. — Winnie the Pooh
+- You is kind. You is smart. You is important. — The Help
+- It is never too late to be what you might have been. — George Eliot
+- Not all those who wander are lost. — J.R.R. Tolkien
+- Even the smallest person can change the course of the future. — J.R.R. Tolkien
+- Tomorrow is always fresh, with no mistakes in it yet. — Anne of Green Gables
+- And now that you don't have to be perfect, you can be good. — East of Eden
+- The world breaks everyone, and afterward many are strong at the broken places. — Ernest Hemingway
+- Do what you can, with what you have, where you are. — Theodore Roosevelt
+- Just keep swimming. — Finding Nemo
+- The flower that blooms in adversity is the rarest and most beautiful of all. — Mulan
+- Adventure is out there. — Up
+- Ohana means family. Family means nobody gets left behind. — Lilo & Stitch
+- The night is darkest just before the dawn. — The Dark Knight
+- We accept the love we think we deserve. — Stephen Chbosky
+- It is the possibility of a dream coming true that makes life interesting. — The Alchemist
+- Nothing is impossible, the word itself says I'm possible. — Audrey Hepburn
+- The best way out is always through. — Robert Frost
+- Once you choose hope, anything is possible. — Christopher Reeve
+- The old brag of my heart: I am, I am, I am. — Sylvia Plath
+- To live will be an awfully big adventure. — Peter Pan
+- How far that little candle throws its beams! So shines a good deed in a weary world. — Shakespeare
+- Only that day dawns to which we are awake. — Henry David Thoreau
+- All we have to decide is what to do with the time that is given us. — The Lord of the Rings
+- There is some good in this world, and it's worth fighting for. — The Lord of the Rings
+- You pierce my soul. I am half agony, half hope. — Persuasion
+- Keep your face always toward the sunshine, and shadows fall behind you. — Walt Whitman
+- The flower that blooms in adversity is the most rare and beautiful of all. — Mulan
+- To infinity and beyond. — Toy Story
+- I have loved the stars too fondly to be fearful of the night. — Sarah Williams
+- Life is what happens when you're busy making other plans. — John Lennon
+- It is a far, far better thing that I do, than I have ever done. — A Tale of Two Cities
+- Whatever you are, be a good one. — Abraham Lincoln
+- And, when you want something, all the universe conspires in helping you. — The Alchemist
+- Even the darkest night will end and the sun will rise. — Les Miserables
+- Happiness is only real when shared. — Into the Wild
+- How far that little candle throws his beams; so shines a good deed. — The Merchant of Venice
+- I took a deep breath and listened to the old brag of my heart. I am, I am. — Sylvia Plath
+- Not everything that is faced can be changed, but nothing is changed until faced. — James Baldwin
+- Second star to the right and straight on till morning. — Peter Pan
+- There's no place like home. — The Wizard of Oz
+- No feeling is final. — Rainer Maria Rilke
+- Everything you can imagine is real. — Pablo Picasso
+- One cannot think well, love well, sleep well, if one has not dined well. — Virginia Woolf
+- Caring for myself is not self-indulgence, it is self-preservation. — Audre Lorde
+- Somewhere, something incredible is waiting to be known. — Carl Sagan
+- There is nothing more truly artistic than to love people. — Vincent van Gogh
+- You must be the person you have never had the courage to be. — Paulo Coelho
+- Kindness is always fashionable. — Amelia Barr
+- Attention is the rarest and purest form of generosity. — Simone Weil
+- Tenderness and kindness are not signs of weakness, but manifestations of strength. — Kahlil Gibran
+- The most common way people give up their power is by thinking they don't have any. — Alice Walker
+- The cure for anything is salt water: sweat, tears or the sea. — Isak Dinesen
+- Life is a tragedy when seen in close-up, but a comedy in long-shot. — Charlie Chaplin
+- Beauty will save the world. — Dostoevsky
+- I would rather walk with a friend in the dark than alone in the light. — Helen Keller
+- The soul is healed by being with children. — Dostoevsky
+- We're all just walking each other home. — Ram Dass
+- And in that moment, I swear we were infinite. — Stephen Chbosky
+- Perhaps all the dragons in our lives are princesses waiting to see us act. — Rainer Maria Rilke
+- Not knowing when the dawn will come, I open every door. — Emily Dickinson
+- Forever is composed of nows. — Emily Dickinson
+- I am large, I contain multitudes. — Walt Whitman
+- Love is the difficult realization that something other than oneself is real. — Iris Murdoch
+- Tenderness is the most modest form of love. — Olga Tokarczuk
+- Beauty begins the moment you decide to be yourself. — Coco Chanel
+- You're only given a little spark of madness. You mustn't lose it. — Robin Williams
+- Even miracles take a little time. — Cinderella
+- Every human is a little bit sad all the time, but you learn to dance with it. — The Good Place
+- It gets easier. But you have to do it every day. That's the hard part. — BoJack Horseman
+- I like the wine, not the label. — Schitt's Creek
+- Crying helps me slow down and obsess over the weight of life's problems. — Inside Out
+- Once you've met someone you never really forget them. — Spirited Away
+- A heart's a heavy burden. — Howl's Moving Castle
+- We each need to find our own inspiration. Sometimes it isn't easy. — Kiki's Delivery Service
+- If we're kind and polite, the world will be right. — Paddington
+- In London everyone is different, and that means anyone can fit in. — Paddington
+- Love is the one thing that transcends time and space. — Interstellar
+- If there's any magic in this world, it's in the attempt of understanding someone. — Before Sunrise
+- The most beautiful part of your body is where it's headed. — Ocean Vuong
+- Before you know kindness as the deepest thing inside, you must know sorrow. — Naomi Shihab Nye
+- Be joyful though you have considered all the facts. — Wendell Berry
+- When we no longer know what to do, we have come to our real work. — Wendell Berry
+- How we spend our days is, of course, how we spend our lives. — Annie Dillard
+- There are a thousand thousand reasons to live this life, every one sufficient. — Marilynne Robinson
+- And did you get what you wanted from this life, even so? — Raymond Carver
+- If you want to be happy, be. — Leo Tolstoy
+- Seek and learn to recognize what, in the midst of the inferno, is not inferno. — Italo Calvino
+- I have always imagined that Paradise will be a kind of library. — Jorge Luis Borges
+- You can cut all the flowers but you cannot keep spring from coming. — Pablo Neruda
+- You will love again the stranger who was your self. — Derek Walcott
+- The constant happiness is curiosity. — Alice Munro
+- Hope is optimism with a broken heart. — Nick Cave
+- A true selfless act always sparks another. — Klaus
+- You are who you choose to be. — The Iron Giant
+- To create one's own world takes courage. — Georgia O'Keeffe
+- Feet, what do I need you for when I have wings to fly? — Frida Kahlo
+- Anything can happen, child. Anything can be. — Shel Silverstein
+- Every day is a journey, and the journey itself is home. — Matsuo Basho
+- Once the storm is over, you won't remember how you made it through. — Haruki Murakami
+- Love is an action, never simply a feeling. — bell hooks
+- All that you touch you change. All that you change changes you. — Octavia Butler
+- Every second counts. — The Bear
+- The most sophisticated people I know are all children inside. — Jim Henson
+- Hope is an axe you break down doors with in an emergency. — Rebecca Solnit
+- Be brave enough to break your own heart. — Cheryl Strayed
+- It is often said that before you die your life passes before your eyes. That is true. It's called living. — Terry Pratchett
+- You get what anybody gets. You get a lifetime. — Neil Gaiman
+- The only thing that makes life possible is permanent, intolerable uncertainty. — Ursula K. Le Guin
+- Hope begins in the dark. You show up and try, and the dawn will come. — Anne Lamott
+- Where you tend a rose, a thorn cannot grow. — The Secret Garden
+- The world is so full of a number of things, I'm sure we should all be as happy as kings. — Robert Louis Stevenson
+- Live all you can; it's a mistake not to. — Henry James
+- In the depth of winter, I finally learned that within me there lay an invincible summer. — Albert Camus
+- There is always something left to love. — García Márquez
+- The mind is not a vessel to be filled, but a fire to be kindled. — Plutarch
+- The soul should always stand ajar. — Emily Dickinson
+- We are volcanoes. When we women offer our experience as our truth, all the maps change. — Ursula K. Le Guin
+- Nothing ever goes away until it has taught us what we need to know. — Pema Chödrön
+- Start close in, don't take the second step or the third. — David Whyte
+- All things break. And all things can be mended. — L.R. Knost
+- You have been criticizing yourself for years and it hasn't worked. Try approving of yourself. — Louise Hay
+- Joy is an act of resistance. — Toi Derricotte
+- Keep a little fire burning; however small, however hidden. — Cormac McCarthy
+- The scariest moment is always just before you start. — Stephen King
+- A word after a word after a word is power. — Margaret Atwood
+- I'd rather take coffee than compliments just now. — Louisa May Alcott
+- I would always rather be happy than dignified. — Jane Eyre
+- There is no heavier burden than a great potential. — Charles Schulz
+- One day I will find the right words, and they will be simple. — Jack Kerouac
+- Let us be grateful to the people who make us happy; they are the charming gardeners who make our souls blossom. — Marcel Proust
+- Nobody sees a flower really; it is so small. We haven't time, and to see takes time. — Georgia O'Keeffe
+- Courage doesn't always roar. Sometimes courage is the quiet voice at the end of the day saying, I will try again tomorrow. — Mary Anne Radmacher
+- Look closely at the present you are constructing: it should look like the future you are dreaming. — Alice Walker
+- The universe is made of stories, not of atoms. — Muriel Rukeyser
+- Exuberance is beauty. — William Blake
+- Joy is the simplest form of gratitude. — Karl Barth
+- The love of our neighbor in all its fullness simply means being able to say, What are you going through? — Simone Weil
+- I urge you to please notice when you are happy. — Kurt Vonnegut
+- Whatever it is you're scared of doing, do it. Make your mistakes, next year and forever. — Neil Gaiman
+- We are cups, constantly and quietly being filled. — Ray Bradbury
+- Won't you celebrate with me what I have shaped into a kind of life? — Lucille Clifton
+- What is to give light must endure burning. — Viktor Frankl
+- One must still have chaos in oneself to be able to give birth to a dancing star. — Nietzsche
+- The best portion of a good man's life: his little, nameless, unremembered acts of kindness and of love. — William Wordsworth
+- Don't judge each day by the harvest you reap but by the seeds that you plant. — Robert Louis Stevenson
+- Vulnerability is not weakness; it's our greatest measure of courage. — Brené Brown
+- We are the ones we have been waiting for. — June Jordan
+- The world will ask you who you are, and if you don't know, the world will tell you. — Carl Jung
+- Hope has two beautiful daughters: anger and courage. — Saint Augustine
+- To love oneself is the beginning of a lifelong romance. — Oscar Wilde
+- Sometimes it is the people no one imagines anything of who do the things that no one can imagine. — The Imitation Game
+- After nourishment, shelter and companionship, stories are the thing we need most. — Philip Pullman
+- Love is or it ain't. Thin love ain't love at all. — Toni Morrison
+- It is a happiness to wonder; it is a happiness to dream. — Edgar Allan Poe
+- Arranging a bowl of flowers in the morning can give a sense of quiet in a crowded day. — Anne Morrow Lindbergh
+- I hope you live a life you're proud of. If you find that you're not, I hope you have the strength to start all over again. — Benjamin Button
+- Work is love made visible. — Kahlil Gibran
+- Beauty is not in the face; beauty is a light in the heart. — Kahlil Gibran
+- We are cups, constantly and quietly being filled. The trick is knowing how to tip ourselves over and let the beautiful stuff out. — Ray Bradbury
+- Stuff your eyes with wonder, live as if you'd drop dead in ten seconds. — Ray Bradbury
+- I like living. I have sometimes been wildly, despairingly, acutely miserable, but through it all I still know quite certainly that just to be alive is a grand thing. — Agatha Christie
+- Do not spoil what you have by desiring what you have not. — Epicurus
+- It isn't what we say or think that defines us, but what we do. — Jane Austen
+- Kindness is loving people more than they deserve. — Joseph Joubert
+- Wherever there is a human being, there is an opportunity for a kindness. — Seneca
+- Act as if what you do makes a difference. It does. — William James
+- The art of being wise is knowing what to overlook. — William James
+- Laughter is the sun that drives winter from the human face. — Victor Hugo
+- Life is a shipwreck, but we must not forget to sing in the lifeboats. — Voltaire
+- The heart has its reasons of which reason knows nothing. — Blaise Pascal
+- The good life is one inspired by love and guided by knowledge. — Bertrand Russell
+- There is nothing better than a friend, unless it is a friend with chocolate. — Linda Grayson
+- Grief is just love with no place to go. — Jamie Anderson
+- It is such a happiness when good people get together. — Jane Austen
+- The sun himself is weak when he first rises, and gathers strength as the day gets on. — Charles Dickens
+- I wish there was a way to know you're in the good old days before you've left them. — The Office
+- What matters is whether they're trying to be better today than they were yesterday. — The Good Place
+- I just try to live every day as if I've deliberately come back to this one day. — About Time
+- I'm so glad I live in a world where there are Octobers. — Anne of Green Gables
+- Somewhere inside all of us is the power to change the world. — Roald Dahl
+- Talent is a pursued interest. Anything you're willing to practice, you can do. — Bob Ross
+- Life's like a movie, write your own ending. Keep believing, keep pretending. — The Muppet Movie
+- Hold fast to dreams, for if dreams die, life is a broken-winged bird that cannot fly. — Langston Hughes
+- Walk on air against your better judgement. — Seamus Heaney
+- To feel nothing so as not to feel anything — what a waste. — Call Me by Your Name
+- Sometimes the best way to solve your own problems is to help someone else. — Uncle Iroh
+- I'm going to live every minute of it. — Soul
+- This is water. This is water. — This Is Water
+- We must risk delight. — Jack Gilbert
+- Dwell on the beauty of life. Watch the stars, and see yourself running with them. — Marcus Aurelius
+- My life has been full of terrible misfortunes most of which never happened. — Montaigne
+- See you down the road. — Nomadland
+- Despite knowing the journey and where it leads, I embrace it. — Arrival
+- The wind is rising. We must try to live. — The Wind Rises
+- If every porkchop were perfect, we wouldn't have hot dogs. — Steven Universe
+- The only way to cope with something deadly serious is to try to treat it a little lightly. — A Wrinkle in Time
+- Death ends a life, not a relationship. — Tuesdays with Morrie
+- Pain is inevitable. Suffering is optional. — Haruki Murakami
+- The evening's the best part of the day. — The Remains of the Day
+- Survival is insufficient. — Station Eleven
+- Above all, be the heroine of your life, not the victim. — Nora Ephron
+- I don't know where I'm going from here, but I promise it won't be boring. — David Bowie
+- Your body is not a temple, it's an amusement park. Enjoy the ride. — Anthony Bourdain
+- I am seeking, I am striving, I am in it with all my heart. — Vincent van Gogh
+- It gets easier. Every day it gets a little easier. But you gotta do it every day. — BoJack Horseman
+- Arrange whatever pieces come your way. — Virginia Woolf
+- We're all traveling through time together, every day of our lives. — About Time
+- The wave returns to the ocean, where it came from and where it is supposed to be. — The Good Place
+- It is important to draw wisdom from many different places. — The Last Airbender
+- You must not let anyone define your limits because of where you come from. — Ratatouille
+- The only thing I do know is that we have to be kind. Please, be kind. — Everything Everywhere
+- Beautiful things don't ask for attention. — Walter Mitty
+- You can, you should, and if you're brave enough to start, you will. — Stephen King
+- Above all, don't lie to yourself. — The Brothers Karamazov
+- Live in the layers, not on the litter. — Stanley Kunitz
+- To be nobody but yourself in a world doing its best to make you everybody else. — E. E. Cummings
+- I carry your heart with me. I carry it in my heart. — E. E. Cummings
+- Compassion for others begins with kindness to ourselves. — Pema Chodron
+- What is grief, if not love persevering? — WandaVision
+- It is the possibility of having a dream come true that makes life interesting. — The Alchemist
+- A man can be destroyed but not defeated. — The Old Man and the Sea
+- The curious paradox is that when I accept myself as I am, then I can change. — Carl Rogers
+- No one is useless in this world who lightens the burdens of another. — Charles Dickens
+- We are all stories in the end. Just make it a good one. — Doctor Who
+- You are only given a little spark of madness. You must not lose it. — Robin Williams
+- It is not who I am underneath, but what I do that defines me. — Batman Begins
+- It is not down in any map; true places never are. — Moby-Dick
+- The privilege of a lifetime is being who you are. — Joseph Campbell
+- At some point in life the world's beauty becomes enough. — Toni Morrison
+- If there is a book you want to read but it has not been written, you must write it. — Toni Morrison
+- Love makes your soul crawl out from its hiding place. — Zora Neale Hurston
+- Nobody realizes that some people expend tremendous energy merely to be normal. — Albert Camus
+- The very things that hold you down are going to lift you up. — Dumbo
+- In every job that must be done, there is an element of fun. — Mary Poppins
+- Anything can happen if you let it. — Mary Poppins
+- However difficult life may seem, there is always something you can do and succeed at. — Stephen Hawking
+- The little things are infinitely the most important. — Sherlock Holmes
+- Every time a bell rings, an angel gets his wings. — It's a Wonderful Life
+- Live in the present, launch yourself on every wave. — Thoreau
+- It is a dangerous business, going out your door. — The Hobbit
+- It is a serious thing just to be alive on this fresh morning in this broken world. — Mary Oliver
+- Be regular and orderly in your life, so that you may be violent and original in your work. — Gustave Flaubert
+- You think your pain and your heartbreak are unprecedented in the history of the world, but then you read. — James Baldwin
+- Perhaps home is not a place but simply an irrevocable condition. — Giovanni's Room
+- Everyone thinks of changing the world, but no one thinks of changing himself. — Leo Tolstoy
+- Wisdom comes from experience. Experience is often a result of lack of wisdom. — Terry Pratchett
+- I may not have gone where I intended to go, but I think I have ended up where I needed to be. — Douglas Adams
+- There is no person in the whole world like you, and I like you just the way you are. — Fred Rogers
+- The moment we choose to love we begin to move towards freedom. — bell hooks
+- Traveler, there is no path. The path is made by walking. — Antonio Machado
+- Hope is an embrace of the unknown. — Rebecca Solnit
+- We tell ourselves stories in order to live. — Joan Didion
+- The only thing we have found that makes the emptiness bearable is each other. — Contact
+- The truth will set you free, but first it will piss you off. — Gloria Steinem
+- The pieces I am, she gather them and gave them back to me in all the right order. — Beloved
+- I have been absolutely terrified every moment of my life, and I have never let it keep me from doing a single thing I wanted to do. — Georgia O'Keeffe
+- You will never know everything about anything, especially something you love. — Julia Child
+- There are darknesses in life and there are lights, and you are one of the lights. — Dracula
+- That is happiness; to be dissolved into something complete and great. — Willa Cather
+- I am glad you are here with me. Here at the end of all things. — The Return of the King
+- What we have once enjoyed we can never lose. All that we love deeply becomes a part of us. — Helen Keller
+- Life appears to me too short to be spent in nursing animosity or registering wrongs. — Jane Eyre
+- We are what we pretend to be, so we must be careful about what we pretend to be. — Mother Night
+- I want to do with you what spring does with the cherry trees. — Pablo Neruda
+- Laughter is poison to fear. — Game of Thrones
+- Real courage is when you know you are licked before you begin, but you begin anyway. — To Kill a Mockingbird
+- Most people are other people. Their thoughts are someone else's opinions. — Oscar Wilde
+- The mind is its own place, and in itself can make a heaven of hell. — Paradise Lost
+- Whenever you feel like criticizing anyone, remember that all the people in this world have not had the advantages that you have had. — The Great Gatsby
+- You do not have to be good. — Mary Oliver
+- Everything is very uncertain, and that's exactly what makes me calm. — Tove Jansson
+- I have never tried that before, so I think I should definitely be able to do that. — Pippi Longstocking
+- Great people do things before they're ready. — Amy Poehler
+- Why do you go away? So that you can come back. — Terry Pratchett
+- Whatever you end up doing, love it. — Cinema Paradiso
+- Next time is next time. Now is now. — Perfect Days
+- Guess why I smile a lot? Because it's worth it. — Marcel the Shell
+- This place could be beautiful, right? You could make this place beautiful. — Maggie Smith
+- What will survive of us is love. — Philip Larkin
+- A home isn't always the house we live in. It's the people we choose to surround ourselves with. — T.J. Klune
+- You are not a fixed thing. You are a collection of possibilities. — Matt Haig
+- The Beauty of the House is immeasurable; its Kindness infinite. — Piranesi
+- I have loved and been loved; I have been given much and I have given something in return. — Oliver Sacks
+- In case I don't see ya, good afternoon, good evening, and good night. — The Truman Show
+- I have hated the words and I have loved them, and I hope I have made them right. — The Book Thief
+- You must only concentrate on the next step, the next breath, the next stroke of the broom. — Momo
+- There is nothing half so much worth doing as simply messing about in boats. — The Wind in the Willows
+- You must never feel badly about making mistakes, as long as you learn from them. — The Phantom Tollbooth
+- If I am a princess in rags and tatters, I can be a princess inside. — A Little Princess
+- Open your heart. Someone will come. Someone will come for you. — Edward Tulane
+- If you must blink, do it now. — Kubo and the Two Strings
+- A real loser is somebody so afraid of not winning, they don't even try. — Little Miss Sunshine
+- I prefer the absurdity of writing poems to the absurdity of not writing poems. — Wisława Szymborska
+- Put your ear down close to your soul and listen hard. — Anne Sexton
+- Loving someone is like moving into a house. — Fredrik Backman
+- You may tell a tale that takes up residence in someone's soul. — The Night Circus
+- A man must master his circumstances or otherwise be mastered by them. — Amor Towles
+- There was something very special, but it wasn't inside Josie. It was inside those who loved her. — Klara and the Sun
+- Be excellent to each other. — Bill & Ted
+- Nobody can be exactly like me. Sometimes even I have trouble doing it. — Tallulah Bankhead
+- Joy is not made to be a crumb. — Mary Oliver
+- Sometimes I need only to stand wherever I am to be blessed. — Mary Oliver
+- The house protects the dreamer. — Gaston Bachelard
+- I would rather be whole than good. — Carl Jung
+- It is not that we have a short time to live, but that we waste a lot of it. — Seneca
+- Don't worry about the world ending today. It is already tomorrow in Australia. — Charles Schulz
+- The only way to make sense out of change is to plunge in and join the dance. — Alan Watts
+- The best thing one can do when it is raining is to let it rain. — Longfellow
+- Very few of us are what we seem. — Agatha Christie
+- It doesn't happen all at once. You become. It takes a long time. — The Velveteen Rabbit
+- What good is the warmth of summer, without the cold of winter to give it sweetness. — John Steinbeck
+- Three things in human life are important: to be kind, to be kind, and to be kind. — Henry James
+- Try to be one of the people on whom nothing is lost. — Henry James
+- It's a magical world, Hobbes, old buddy. Let's go exploring! — Calvin and Hobbes
+- There's never enough time to do all the nothing you want. — Calvin and Hobbes
+- I think we dream so we don't have to be apart so long. — Calvin and Hobbes
+- There is nothing like looking, if you want to find something. — The Hobbit
+- May the wind under your wings bear you where the sun sails and the moon walks. — The Hobbit
+- Where there is tea there is hope. — Arthur Wing Pinero
+- One must maintain a little bit of summer, even in the middle of winter. — Thoreau
+- I don't want to survive. I want to live. — WALL-E
+- Venture outside your comfort zone. The rewards are worth it. — Tangled
+- Trouble is part of your life. If you don't share it, you don't give those who love you a chance. — Dinah Shore
+- Wherever your heart is, that is where you'll find your treasure. — The Alchemist
+- I am, in fact, a hobbit in all but size. — J.R.R. Tolkien
+- Tomorrow is a new day with no mistakes in it yet. — Anne of Green Gables
+- Real is not how you are made. It is a thing that happens to you. — The Velveteen Rabbit
+- Owning our story and loving ourselves through that process is the bravest thing we will ever do. — Brene Brown
+- It is no use going back to yesterday, because I was a different person then. — Alice in Wonderland
+- What you do makes a difference, and you have to decide what kind of difference you want to make. — Jane Goodall
+- Ever tried. Ever failed. No matter. Try again. Fail again. Fail better. — Samuel Beckett
+- Love is or it is not. Thin love is not love at all. — Toni Morrison
+- Life is a great big canvas, and you should throw all the paint on it you can. — Danny Kaye
+- The bird a nest, the spider a web, man friendship. — William Blake
+- Let everything happen to you: beauty and terror. Just keep going. No feeling is final. — Rilke
+- Live the questions now. — Letters to a Young Poet
+- Until I feared I would lose it, I never loved to read. One does not love breathing. — To Kill a Mockingbird
+- Can a man still be brave if he is afraid? That is the only time a man can be brave. — A Game of Thrones
+- The world is quiet here. — Lemony Snicket
+- There is no such thing as bad weather, only unsuitable clothing. — Alfred Wainwright
+- Just to be alive is a grand thing. — Agatha Christie
+- Bravery is being the only one who knows you are afraid. — Franklin P. Jones
+- I can shake off everything as I write; my sorrows disappear, my courage is reborn. — Anne Frank
+- We are like butterflies who flutter for a day and think it is forever. — Carl Sagan
+- The most beautiful thing we can experience is the mysterious. — Albert Einstein
+- Now is no time to think of what you do not have. Think of what you can do with what there is. — Ernest Hemingway
+- You must go on. I can't go on. I'll go on. — Samuel Beckett
+- The little things? The little moments? They aren't little. — Jon Kabat-Zinn
+- You can't stop the waves, but you can learn to surf. — Jon Kabat-Zinn
+- The body says what words cannot. — Martha Graham
+- Rest is not idleness, and to lie sometimes on the grass under trees on a summer's day is no waste of time. — John Lubbock
+- Dear old world, you are very lovely, and I am glad to be alive in you. — Anne of Green Gables
+- Kindness in another's trouble, courage in your own. — Adam Lindsay Gordon
+- You can't ever be really free if you admire somebody too much. — Tove Jansson
+- Sometimes life is like this dark tunnel. You can't always see the light at the end, but if you just keep moving, you will come to a better place. — Uncle Iroh
+- Time is how you spend your love. — Zadie Smith
+- Nothing is so strong as gentleness, nothing so gentle as real strength. — Francis de Sales
+- What a lovely surprise to finally discover how unlonely being alone can be. — Ellen Burstyn
+- How wild it was, to let it be. — Cheryl Strayed
+- The sun is new each day. — Heraclitus
+- Perhaps the butterfly is proof that you can go through a great deal of darkness and still become something beautiful. — Beau Taplin
+- Hope locates itself in the premises that we don't know what will happen and that in that uncertainty is room to act. — Rebecca Solnit
+- You've got to learn to leave the table when love is no longer being served. — Nina Simone
+- When given the choice between being right or being kind, choose kind. — Wonder
+- For you, a thousand times over. — Khaled Hosseini
+- I must say a word about fear. It is life's only true opponent. — Life of Pi
+- Every time someone steps up and says who they are, the world becomes a better place. — Brooklyn Nine-Nine
+- I think you know how to love better than any of us. That's why you find it all so painful. — Fleabag
+- The growing good of the world is partly dependent on unhistoric acts. — Middlemarch
+- Only connect. — Howards End
+- If you stay positive, you have a shot at a silver lining. — Silver Linings Playbook
+- You have to find a mother inside yourself. — The Secret Life of Bees
+- A man tells his stories so many times that he becomes the stories. — Big Fish
+- If having a soul means being able to feel love and loyalty and gratitude, then animals are better off than a lot of humans. — James Herriot
+- You need to learn how to select your thoughts just the same way you select your clothes every day. — Elizabeth Gilbert
+- Culture does not make people. People make culture. — Chimamanda Adichie
+- The very least you can do in your life is figure out what you hope for. — Barbara Kingsolver
+- Loneliness is the poverty of self; solitude is the richness of self. — May Sarton
+- The great thing about getting older is that you don't lose all the other ages you've been. — Madeleine L'Engle
+- Risk! Risk anything! Care no more for the opinions of others. — Katherine Mansfield
+- You can't wait for inspiration. You have to go after it with a club. — Jack London
+- The day will never arrive when you finally have everything under control. — Oliver Burkeman
+- Store-bought is fine. — Ina Garten
+- Change your life today. Don't gamble on the future, act now, without delay. — Simone de Beauvoir
+- Ultimately, we have just one moral duty: to reclaim large areas of peace in ourselves. — Etty Hillesum
+- The pitcher cries for water to carry, and a person for work that is real. — Marge Piercy
+- We love because it's the only true adventure. — Nikki Giovanni
+- The thing is, to love life, to love it even when you have no stomach for it. — Ellen Bass
+- The land knows you, even when you are lost. — Braiding Sweetgrass
+- The only way to learn is to live. — The Midnight Library
+- The only recognizable feature of hope is action. — Grace Paley
+- I carry my awareness of defeat like a banner of victory. — Fernando Pessoa
+- Always be on the lookout for the presence of wonder. — E.B. White
+- We can only learn to love by loving. — Iris Murdoch
+- Trees and people used to be good friends. — My Neighbor Totoro
+- I love deadlines. I love the whooshing noise they make as they go by. — Douglas Adams
+- I cannot pretend I am without fear. But my predominant feeling is one of gratitude. — Oliver Sacks
+- Done is better than good. — Elizabeth Gilbert
+- We have to dare to be ourselves, however frightening or strange that self may prove to be. — May Sarton
+- Come celebrate with me that every day something has tried to kill me and has failed. — Lucille Clifton
+- If one did not master one's circumstances, one was bound to be mastered by them. — Amor Towles
+- The thief left it behind — the moon at the window. — Ryokan
+- There is no such thing as bad weather, only different kinds of good weather. — John Ruskin
+- To be interested in the changing seasons is a happier state of mind than to be hopelessly in love with spring. — George Santayana
+- Everything is held together with stories. That is all that is holding us together. — Barry Lopez
+- Enjoy every sandwich. — Warren Zevon
+- Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — Marcus Aurelius
+- The reading of all good books is like a conversation with the finest minds of past centuries. — Descartes
+- There is a stubbornness about me that never can bear to be frightened at the will of others. — Pride and Prejudice
+- No winter lasts forever; no spring skips its turn. — Hal Borland
+- Nothing is permanent in this wicked world, not even our troubles. — Charlie Chaplin
+- You'll never find a rainbow if you're looking down. — Charlie Chaplin
+- Fairy tales are more than true: not because they tell us that dragons exist, but because they tell us that dragons can be beaten. — Neil Gaiman
+- Life is to be lived, not controlled. — Invisible Man
+- Home is the nicest word there is. — Laura Ingalls Wilder
+- I have found that if you love life, life will love you back. — Arthur Rubinstein
+- I am certain of nothing but the holiness of the heart's affections. — John Keats
+- The measure of a person, of a hero, is how well they succeed at being who they are. — Thor: The Dark World
+- We think too much and feel too little. — The Great Dictator
+- Give me books, fruit, French wine and fine weather and a little music. — John Keats
+- It's the sides of the mountain which sustain life, not the top. — Robert M. Pirsig
+- There's only one rule that I know of, babies: you've got to be kind. — Kurt Vonnegut
+- Never confuse a single defeat with a final defeat. — F. Scott Fitzgerald
+- For what it's worth: it's never too late to be whoever you want to be. — Benjamin Button
+- The moon is a friend for the lonesome to talk to. — Carl Sandburg
+- Life is not a problem to be solved but a reality to be experienced. — Kierkegaard
+- It's not the load that breaks you down, it's the way you carry it. — Lena Horne
+- The really important kind of freedom involves attention, awareness and discipline. — This Is Water
+- Thanks for the adventure. Now go have a new one. — Up
+- I would rather have thirty minutes of wonderful than a lifetime of nothing special. — Steel Magnolias
+- Laughter through tears is my favourite emotion. — Steel Magnolias
+- I love sleep. My life has a tendency to fall apart when I'm awake. — Ernest Hemingway
+- People generally see what they look for, and hear what they listen for. — To Kill a Mockingbird
+- You can't crush a soul here. That's what life on Earth is for. — Soul
+- Man is a creature that can get used to anything, and that is the best way of defining him. — Dostoevsky
+- Kindred spirits are not so scarce as I used to think. — Anne of Green Gables
+- What do we live for, if it is not to make life less difficult to each other? — George Eliot
+- Every limit is a beginning as well as an ending. — George Eliot
+- The strongest of all warriors are these two: Time and Patience. — War and Peace
+- Remember to look up at the stars and not down at your feet. — Stephen Hawking
+- I know nothing with any certainty, but the sight of the stars makes me dream. — Vincent van Gogh
+- Normality is a paved road: comfortable to walk, but no flowers grow on it. — Vincent van Gogh
+- Not all of us can do great things. But we can do small things with great love. — Mother Teresa
+- We are all just walking each other home. — Ram Dass
+- Nothing ever goes away until it teaches us what we need to know. — Pema Chodron
+- The most precious gift we can offer others is our presence. — Thich Nhat Hanh
+- It takes a long time to become young. — Pablo Picasso
+- There are two ways of spreading light: to be the candle or the mirror that reflects it. — Edith Wharton
+- Life can only be understood backwards, but it must be lived forwards. — Soren Kierkegaard
+- The powerful play goes on, and you may contribute a verse. — Dead Poets Society
+- Family is not an important thing. It's everything. — Michael J. Fox
+- The most important thing in communication is hearing what isn't said. — Peter Drucker
+- Comedy is tragedy plus time. — Carol Burnett
+- I still find each day too short for all the thoughts I want to think. — John Burroughs
+- Tears are words that need to be written. — Paulo Coelho
+- Life is worth living as long as there's a laugh in it. — Anne of Green Gables
+- There is nothing in a caterpillar that tells you it's going to be a butterfly. — Buckminster Fuller
+- One's destination is never a place, but a new way of seeing things. — Henry Miller
+- Above all, watch with glittering eyes the whole world around you. — Roald Dahl
+- Tomorrow will be a good day. — Captain Tom Moore
+- Don't ask what the world needs. Ask what makes you come alive. — Howard Thurman
+- One is never afraid of the unknown; one is afraid of the known coming to an end. — Krishnamurti
+- Be who you needed when you were younger. — Brad Montague
+- The reward for conformity is that everyone likes you except yourself. — Rita Mae Brown
+- You can be the ripe, juicy peach and there will still be someone who doesn't like peaches. — Dita Von Teese
+- Every day may not be good, but there's something good in every day. — Alice Morse Earle
+- You have to leave the city of your comfort and go into the wilderness of your intuition. — Alan Alda
+- There is no way to be a perfect mother, and a million ways to be a good one. — Jill Churchill
+- A book is a dream that you hold in your hand. — Neil Gaiman
+- I come into the peace of wild things who do not tax their lives with grief. — Wendell Berry
+- First you jump off the cliff and you build your wings on the way down. — Ray Bradbury
+- Don't you think maybe they are the same thing? Love and attention? — Lady Bird
+- We fly with our spirit. — Kiki's Delivery Service
+- Hope locates itself in the premises that we don't know what will happen. — Rebecca Solnit
+- Everything will be okay in the end. If it's not okay, it's not the end. — Marigold Hotel
+- Nothing of me is original. I am the combined effort of everybody I've ever known. — Chuck Palahniuk
+- Have I gone mad? I'm afraid so, but the best people usually are. — Alice in Wonderland
+- If you want to build a ship, teach them to long for the endless sea. — Antoine de Saint-Exupery
+- I try to make everyone's day a little more surreal. — Kurt Vonnegut
+- Everyone is a moon, and has a dark side which he never shows to anybody. — Mark Twain
+- Comparison is an act of violence against the self. — Iyanla Vanzant
+- Man is least himself when he talks in his own person. Give him a mask, and he will tell you the truth. — Oscar Wilde
+- Do not be dismayed by the brokenness of the world. All things break. — L.R. Knost
+- If you are lonely when you're alone, you are in bad company. — Jean-Paul Sartre
+- Kind words do not cost much. Yet they accomplish much. — Blaise Pascal
+- We are not going in circles, we are going upwards. The path is a spiral. — Hermann Hesse
+- Blessed are the weird people: poets, misfits, writers, mystics. — Jacob Nordby
+- Ships are the nearest things to dreams that hands have ever made. — Robert N. Rose
+- Rest and be thankful. — William Wordsworth
+- The sun does not shine for a few trees and flowers, but for the wide world's joy. — Henry Ward Beecher
+- I can't go on. I'll go on. — Samuel Beckett
+- You'll never do a whole lot unless you're brave enough to try. — Dolly Parton
+- There is no real ending. It's just the place where you stop the story. — Frank Herbert
+- Perhaps everything terrible is in its deepest being something helpless that wants help from us. — Rainer Maria Rilke
+- Life is very short and anxious for those who forget the past and fear the future. — Seneca
+- What I regret most in my life are failures of kindness. — George Saunders
+- Err in the direction of kindness. — George Saunders
+- A sheltered life can be a daring life. For all serious daring starts from within. — Eudora Welty
+- We are each other's harvest; we are each other's business; we are each other's magnitude and bond. — Gwendolyn Brooks
+- After the final no there comes a yes, and on that yes the future world depends. — Wallace Stevens
+- Sometimes my life opened its eyes in the dark. — Tomas Transtromer
+- Anyone who keeps the ability to see beauty never grows old. — Franz Kafka
+- We look at the world once, in childhood. The rest is memory. — Louise Gluck
+- There is no person without a world. — Anne Carson
+- What you risk reveals what you value. — Jeanette Winterson
+- The only thing that can change a person's mind is a good story. — The Overstory
+- Those who contemplate the beauty of the earth find reserves of strength that endure. — Rachel Carson
+- Do stuff. Be clenched, curious. Not waiting for inspiration's shove. — Susan Sontag
+- Anything is possible. Life is at the bottom of things and belief at the top. — Patti Smith
+- We only have what we give. — Isabel Allende
+- Inside us there is something that has no name. That something is what we are. — Jose Saramago
+- Utopia is on the horizon. It serves to make us walk. — Eduardo Galeano
+- Nothing is harder to do than nothing. — Jenny Odell
+- Always be reading something. How else will we read the world? — Ali Smith
+- Beauty consists of its own passing, just as we reach for it. — The Elegance of the Hedgehog
+- You can't judge people by what they've done. Judge them by what they're doing now. — Because of Winn-Dixie
+- The ending of one story is just the beginning of another. — The Fifth Season
+- Happiness is a butterfly which, if you sit down quietly, may alight upon you. — Nathaniel Hawthorne
+- What if we joined our sorrows. I'm saying, what if that is joy? — Ross Gay
+- I would love to live like a river flows, carried by the surprise of its own unfolding. — John O'Donohue
+- I write because I don't know what I think until I read what I say. — Flannery O'Connor
+- There is nothing more beautiful than the way the ocean refuses to stop kissing the shoreline. — Sarah Kay
+- At some point, you gotta decide for yourself who you gonna be. — Moonlight
+- We've all got a messy, loud, weird part of ourselves. — Turning Red
+- Us weirdos have to stick together. — The Owl House
+- It's the possibility of infinite rebirth. It's tomorrow, and tomorrow, and tomorrow. — Gabrielle Zevin
+- Love is love is love is love. — Lin-Manuel Miranda
+- We must love one another or die. — W.H. Auden
+- People don't notice whether it's winter or summer when they're happy. — Chekhov
+- If you love life, don't waste time, for time is what life is made up of. — Bruce Lee
+- If you want to fly, you have to give up the things that weigh you down. — Song of Solomon
+- We have so little of each other, now. — Danusha Laméris
+- I am not done with my changes. — Stanley Kunitz
+- Everything flowers, from within, of self-blessing. — Galway Kinnell
+- Kindness is the only thing that makes sense any more. — Naomi Shihab Nye
+- Before you know what kindness really is you must lose things. — Naomi Shihab Nye
+- My heart is moved by all I cannot save. — Adrienne Rich
+- We die. That may be the meaning of life. But we do language. — Toni Morrison
+- I will be a hummingbird; I will do the best I can. — Wangari Maathai
+- Life happens wherever you are, whether you make it or not. — Uncle Iroh
+- Nobody made a greater mistake than one who did nothing because he could do only little. — Edmund Burke
+- There is no such thing in anyone's life as an unimportant day. — Alexander Woollcott
+- The purpose of art is washing the dust of daily life off our souls. — Pablo Picasso
+- Ordinary riches can be stolen; real riches cannot. — Oscar Wilde
+- Never be so focused on what you're looking for that you overlook the thing you actually find. — Ann Patchett
+- Don't be scared of your hunger. If you're scared of your hunger, you'll just be one more ninny like everyone else. — Olive Kitteridge
+- Everything changes; everything is connected; pay attention. — Jane Hirshfield
+- Your problem is that you're not happy being sad. But that's what love is: happy-sad. — Sing Street
+- Anything different is good. — Groundhog Day
+- I think I have this thing where I need everybody to think I'm the greatest. — Fantastic Mr. Fox
+- There are three ways to ultimate success. The first is to be kind. The second is to be kind. The third is to be kind. — Fred Rogers
+- You can't ever reach perfection, but you can believe in an asymptote toward which you are ceaselessly striving. — When Breath Becomes Air
+- Honour thy error as a hidden intention. — Oblique Strategies
+- In the beginner's mind there are many possibilities, but in the expert's there are few. — Shunryu Suzuki
+- Let us learn to show our friendship for a man when he is alive and not after he is dead. — F. Scott Fitzgerald
+- Grown-ups never understand anything by themselves, and it is tiresome to be always explaining. — The Little Prince
+- The truth is rarely pure and never simple. — The Importance of Being Earnest
+- Life is amazing. And then it's awful. And then it's amazing again. — L.R. Knost
+- Once you have travelled, the voyage never ends. — Pat Conroy
+- I love you right up to the moon and back. — Guess How Much I Love You
+- There is nothing in the world so irresistibly contagious as laughter and good humour. — Charles Dickens
+- This is a good sign, having a broken heart. It means we have tried for something. — Eat, Pray, Love
+- Because of your smile, you make life more beautiful. — Thich Nhat Hanh
+- It's supposed to be hard. If it wasn't hard, everyone would do it. — A League of Their Own
+- The sea, once it casts its spell, holds one in its net of wonder forever. — Jacques Cousteau
+- The eye sees only what the mind is prepared to comprehend. — Robertson Davies
+- The heart of another is a dark forest, always, no matter how close it has been to one's own. — Willa Cather
+- Man cannot discover new oceans unless he has courage to lose sight of the shore. — Andre Gide
+- Rest is not idleness, and to lie sometimes on the grass is by no means a waste of time. — John Lubbock
+- What we have once enjoyed we can never lose. — Helen Keller
+- Nothing is more memorable than a smell. — Diane Ackerman
+- It is astonishing how short a time it takes for very wonderful things to happen. — A Little Princess
+- I am rooted, but I flow. — Virginia Woolf
+- Let me be something every minute of every hour of my life. — A Tree Grows in Brooklyn
+- A single gentle rain makes the grass many shades greener. — Henry David Thoreau
+- There is always one moment in childhood when the door opens and lets the future in. — Graham Greene
+- May your coming year be filled with magic and dreams and good madness. — Neil Gaiman
+- I must have flowers, always, and always. — Claude Monet
+- Happiness is not a station you arrive at, but a manner of traveling. — Margaret Lee Runbeck
+- When you light a candle, you also cast a shadow. — Ursula K. Le Guin
+- Sometimes you have to go on when you don't feel like it. — Laura Ingalls Wilder
+- Hearts will never be practical until they can be made unbreakable. — The Wizard of Oz
+- The best of a book is not the thought which it contains, but the thought which it suggests. — Oliver Wendell Holmes
+- Trust yourself. You know more than you think you do. — Benjamin Spock
+- Nothing has really happened until it has been described. — Virginia Woolf
+- To see we must forget the name of the thing we are looking at. — Claude Monet
+- Beauty and grace are performed whether or not we will or sense them. — Annie Dillard
+- The world is not to be put in order. The world is order. — Henry Miller
+- Do not wait to strike till the iron is hot, but make it hot by striking. — W.B. Yeats
+- Man's mind, once stretched by a new idea, never regains its original dimensions. — Oliver Wendell Holmes
+- Rock bottom became the solid foundation on which I rebuilt my life. — J.K. Rowling
+- Make mistakes. Make glorious, amazing mistakes. — Neil Gaiman
+- Love is the only thing that we can carry with us when we go. — Little Women
+- Maybe sky watching. Maybe walking. I am going to live every minute of it. — Soul
+- Nothing that happens is ever forgotten, even if you cannot remember it. — Spirited Away
+- If this isn't nice, I don't know what is. — Kurt Vonnegut
+- It baffles me, this world. I don't want to leave it yet. — Olive Kitteridge
+- We must have the stubbornness to accept our gladness in the ruthless furnace of this world. — Jack Gilbert
+- For a time I rest in the grace of the world, and am free. — Wendell Berry
+- You don't have to understand life. You just have to live it. — The Midnight Library
+- Knowing how to be solitary is central to the art of loving. — bell hooks
+- If you have the words, there's always a chance that you'll find the way. — Seamus Heaney
+- In a solitary life, there are rare moments when another soul dips near yours, as stars once a year brush the earth. — Circe
+- The place I like best in this world is the kitchen. — Kitchen
+- Whatever it is you're seeking won't come in the form you're expecting. — Kafka on the Shore
+- And you say, yes, I will take you, I will love you, again. — Ellen Bass
+- Sometimes it is necessary to reteach a thing its loveliness. — Galway Kinnell
+- Stay gold, Ponyboy. — The Outsiders
+- What is the bravest thing you have ever said? Help, said the horse. — Charlie Mackesy
+- Nothing beats kindness. It sits quietly beyond all things. — Charlie Mackesy
+- Sometimes just getting up and carrying on is brave and magnificent. — Charlie Mackesy
+- Is your glass half empty or half full? I think I am grateful to have a glass. — Charlie Mackesy
+- It is enough to exist in the world and marvel at it. — Becky Chambers
+- No matter what difficulties people face, they will always have the strength to overcome them. — Toshikazu Kawaguchi
+- I am satisfied with my care. — Big Hero 6
+- I am bad, and that is good. I will never be good, and that is not bad. — Wreck-It Ralph
+- Being brave means you are scared, really scared, and you do the right thing anyway. — Coraline
+- Courage is the root of change. — Lessons in Chemistry
+- All human wisdom is contained in these two words: wait and hope. — Alexandre Dumas
+- Until death, it is all life. — Don Quixote
+- Remember the sky that you were born under. — Joy Harjo
+- Try to praise the mutilated world. — Adam Zagajewski
+- I said to my body softly, I want to be your friend. It replied, I have been waiting my whole life for this. — Nayyirah Waheed
+- Document the moments you feel most in love with yourself. — Warsan Shire
+- Be a good steward of your gifts. Protect your time. — Jane Kenyon
+- I would rather have questions that cannot be answered than answers that cannot be questioned. — Richard Feynman
+- You are a mashup of what you choose to let into your life. — Austin Kleon
+- Do good work and share it with people. — Austin Kleon
+- It is the possibility of infinite rebirth, infinite redemption. — Gabrielle Zevin
+- You are the butter to my bread, and the breath to my life. — Julia Child
+- The way sadness works is one of the strange riddles of the world. — Lemony Snicket
+- Fear is a natural reaction to moving closer to the truth. — Pema Chodron
+- What day is it? It is today, squeaked Piglet. My favorite day. — A.A. Milne
+- Each of us is more than the worst thing we have ever done. — Bryan Stevenson
+- We can do hard things. — Glennon Doyle
+- You can love someone and still choose to say goodbye to them. — Educated
+- You have to love. You have to feel. It is the reason you are here. — Louise Erdrich
+- Open your eyes and see what you can with them before they close forever. — Anthony Doerr
+- I never had any friends later on like the ones I had when I was twelve. — Stand By Me
+- Heroes get remembered, but legends never die. — The Sandlot
+- She is too fond of books, and it has turned her brain. — Little Women
+- Rejoicing in ordinary things is not sentimental or trite. It actually takes guts. — Pema Chodron
+- We write to taste life twice. — Anais Nin
+- There is no way to happiness. Happiness is the way. — Thich Nhat Hanh
+- Where you tend a rose, my lad, a thistle cannot grow. — The Secret Garden
+- A person is a person through other persons. — Desmond Tutu
+- Do your little bit of good where you are; those little bits of good overwhelm the world. — Desmond Tutu
+- Take your broken heart, make it into art. — Carrie Fisher
+- Stay afraid, but do it anyway. What is important is the action. — Carrie Fisher
+- Life is short, and it is up to you to make it sweet. — Sarah Louise Delany
+- I like things that look like mistakes. — Frances Ha
+- When in doubt, choose to live. — Terry Pratchett
+- There isn't a way things should be. There's just what happens, and what we do. — Terry Pratchett
+- The secret is not to dream. The secret is to wake up. — Terry Pratchett
+- Every small, unselfish action nudges the world into a better path. — Robin Hobb
+- The most dreadful and unattractive person only needs to be loved, and they will open up like a flower. — The Grand Budapest Hotel
+- It's lovely to be going home and know it's home. — Anne of Green Gables
+- Practice kindness all day to everybody and you will realize you're already in heaven now. — Jack Kerouac
+- Oh, the comfort, the inexpressible comfort of feeling safe with a person. — Dinah Maria Craik
+- If you really learn how to pay attention, then you will know there are other options. — David Foster Wallace
+- Your problem is how you are going to spend this one odd and precious life you have been issued. — Anne Lamott
+- Sure the world breeds monsters, but kindness grows just as wild. — Mary Karr
+- Almost every time I was super afraid, it was of the wrong thing. — Mary Karr
+- You can either practice being right or practice being kind. — Anne Lamott
+- No darkness lasts forever. And even there, there are stars. — Ursula K. Le Guin
+- It is above all by the imagination that we achieve perception and compassion and hope. — Ursula K. Le Guin
+- Please, be kind, especially when we don't know what's going on. — Everything Everywhere All at Once
+- When I choose to see the good side of things, I'm not being naive. It is strategic and necessary. — Everything Everywhere All at Once
+- Anything that's human is mentionable, and anything that is mentionable can be more manageable. — Fred Rogers
+- I hope you will find some way to break the rules and make a little trouble out there. — Nora Ephron
+- It's not really important what color your dress is. What matters is the heart inside. — Kiki's Delivery Service
+- Everyone keeps telling me how my story is supposed to go. Nah, I'ma do my own thing. — Across the Spider-Verse
+- Everything will turn out right, the world is built on that. — The Master and Margarita
+- I am stronger than I am broken. — Roxane Gay
+- The best portion of a good man's life is his little, nameless, unremembered acts of kindness and of love. — William Wordsworth
+- If today is no good, you'll have tomorrow. If tomorrow's no good, you'll have the next day. — Only Yesterday
+- Try laughing. Then whatever scares you will go away. — My Neighbor Totoro
+- We each need to find our own inspiration. Sometimes it's not easy. — Kiki's Delivery Service
+- Sometimes what you're looking for comes when you're not looking at all. — Ocean Waves
+- One must champion oneself and say, I am ready for this. — Schitt's Creek
+- We're already sick of each other. It's the best. — Palm Springs
+- Be joyful, though you have considered the facts. — Wendell Berry
+- The good thing about being different is that no one expects you to be like them. — The Half of It
+- Because nothing wondrous can come in this world unless it rests on the shoulders of kindness. — Barbara Kingsolver
+- The only person I'd run through an airport for is you. — Fleabag
+- When you put something beautiful out into the world, it's no longer yours really. — Bluey
+- It's not about the food. It's about the people. — The Bear
+- We're people, not parts of people. — Severance
+- Sometimes, the best way to help someone is just to be near them. — Veronica Roth
+- Rainy days should be spent at home with a cup of tea and a good book. — Bill Watterson
+- Art is to console those who are broken by life. — Vincent van Gogh
+- A library is a good place to go when you feel unhappy. — E.B. White
+- Be excessively gentle with yourself. — John O'Donohue
+- You are allowed to take up space on this earth with your feelings, your ideas, your body. — Glennon Doyle
+- There is no help for us but from one another. — Ursula K. Le Guin
+- There is greater comfort in the substance of silence. — Thomas Merton
+- We are all just one small adjustment away from making our lives work. — How Do You Know
+- Your gentleness shall force more gentleness than force. — As You Like It
+- A bunch of small satisfactions that added up to something like happiness. — Into Thin Air
+- Oh! that gentleness! how far more potent is it than force! — Jane Eyre
+- Coming back to where you started is not the same as never leaving. — Terry Pratchett
+- You have no idea what you're doing, and therefore, you're invincible. — The Bear
+- Anticipation creates luxuriation. — The Bear
+- To break patterns, you have to break patterns. — The Bear
+- Never underestimate the big importance of small things. — The Midnight Library
+- Wherever we happen to be standing, the sky above goes on forever. — The Midnight Library
+- Almost everything will work again if you unplug it for a few minutes. — Anne Lamott
+- Hope begins in the dark. — Anne Lamott
+- You should always be nice to other people, even idiots, because you never know how heavy their burden is. — Fredrik Backman
+- We do what we can to help whenever we get the chance. — Fredrik Backman
+- People affect each other in ways you're not aware of and in ways that you're not expecting. — Fredrik Backman
+- Admitting you were afraid always took more guts than pretending you weren't. — Taylor Jenkins Reid
+- I have mixed feelings about who I am, but that is OK, I'm a little bit of everything. — Paddington in Peru
+- A wise bear always keeps a marmalade sandwich in his hat in case of emergency. — Paddington
+- A book, too, can be a star, a living fire to lighten the darkness, leading out into the expanding universe. — Madeleine L'Engle
+- I hope you're proud of yourself for the times you've said yes, when all it meant was extra work for you. — Fred Rogers
+- Confronting our feelings and giving them appropriate expression always takes strength, not weakness. — Fred Rogers
+- Solitude is different from loneliness, and it doesn't have to be a lonely kind of thing. — Fred Rogers
+- Sometimes hearts have their own conversations. — The Wild Robot
+- Fly like you, not like them. — The Wild Robot
+- Sometimes to survive, we must become more than we were programmed to be. — The Wild Robot
+- Thought kindness was a survival skill. And you know what? She was right. — The Wild Robot
+- Joy continues to leap up, unafraid to find us. — Nick Cave
+- But it's beautiful here, even the ghosts agree. — Ocean Vuong
+- You don't need everyone to love you. Just a few good people. — The Greatest Showman
+- One thing you can allow yourself to believe in is that we are all part of the same story. — Kiki's Delivery Service
+- Asking for help isn't giving up. It's refusing to give up. — Charlie Mackesy
+- We can only see our outsides, but nearly everything happens on the inside. — Charlie Mackesy
+- Leave the world more interesting than it was before. — Neil Gaiman
+- He looks for the good in all of us and somehow, he finds it. — Paddington 2
+- You are not unlovable. There is always something to love. — Everything Everywhere All at Once
+- Of all the places I could be, I just want to be here with you. — Everything Everywhere All at Once
+- It's true that if you leave you lose things, but you also gain things, too. — Past Lives
+- Forgetting is how the world heals itself. — Cloud Cuckoo Land
+- If it's told well enough, for as long as the story lasts, you get to slip the trap. — Cloud Cuckoo Land
+- The small things she had said and done and refused to do and say, which when added up, amounted to a life. — Claire Keegan
+- To say you have no choice is a failure of imagination. — Star Trek: Picard
+- There is ugliness in this world. Disarray. I choose to see the beauty. — Westworld
+- Better by far to simply try and be good and courageous and bold and to make a difference. Not change the world exactly, but the bit around you. — David Nicholls
+- You don't need to justify that, or earn it. You are allowed to just live. — Becky Chambers
+- We're all just trying to be comfortable, and well fed, and unafraid. — Becky Chambers
+- We don't have to fall into the same category to be of equal value. — Becky Chambers
+- Almost all good writing begins with terrible first efforts. You need to start somewhere. — Anne Lamott
+- A pawn is a queen-in-waiting. All you need to do is keep moving forward. — The Midnight Library
+- Sometimes just to say your own truth out loud is enough to find others like you. — The Midnight Library
+- Aim to be the truest version of you. Embrace that you-ness. — Matt Haig
+- Sometimes I wish you were bigger so I could hug you harder. — Bluey
+- We each need to find our own inspiration, Kiki. Sometimes it's not easy. — Kiki's Delivery Service
+- All right, first: don't panic! Second: don't panic! And third: did I mention not to panic? — Kiki's Delivery Service
+- She can be bored, but never boring. — Inside Out 2
+- Then you must make your curse your gift. — Inside Out 2
+- There is nothing sweeter in this sad world than the sound of someone you love calling your name. — The Tale of Despereaux
+- Life offers up these moments of joy despite everything. — Normal People
+- Sometimes weak and wan, sometimes strong and full of light. The moon understands what it means to be human. — Shatter Me
+- She would be strong, and she would be weak, and both would be okay. — Furthermore
+- Time you enjoy wasting is not wasted time. — Marthe Troly-Curtin
+- We can never give up longing and wishing while we are thoroughly alive. — The Mill on the Floss
+- So many things are possible just as long as you don't know they're impossible. — The Phantom Tollbooth
+- The worst enemy to creativity is self-doubt. — Sylvia Plath
+- There is something infinitely healing in the repeated refrains of nature. — Rachel Carson
+- A bright little flashing fish of hope has flicked silver fins and the water is bright. — Madeleine L'Engle
+- It is better to be hated for what you are than to be loved for what you are not. — Andre Gide
+- People said Ove saw the world in black and white. But she was color. All the color he had. — A Man Called Ove
+- I will cherish these few specks of time. — Everything Everywhere
+- We are, if we pay attention, in the midst of an almost constant, if subtle, caretaking. — The Book of Delights
+- It's not enough to be kind. One should be kinder than needed. — Wonder
+- When you put something beautiful into the world, it's not yours anymore, not really. — Bluey
+- I'll always be here for you, even if you can't see me. — Bluey
+- They say that the best blaze burns brightest when circumstances are at their worst. — Howl's Moving Castle
+- The more stuff you love the happier you will be. — The Book of Delights
+- From the ground, we stand; From our ships, we live; By the stars, we hope. — Becky Chambers
+- The universe is what we make of it. — Becky Chambers
+- Because I know that no matter what, I'm wonderful. — A Psalm for the Wild-Built
+- It's no use going back to yesterday, because I was a different person then. — Alice in Wonderland
+- I am both happy and sad and I'm still trying to figure out how that could be. — The Perks of Being a Wallflower
+- When I visit the past now, it is for wisdom and experience, not for regret or shame. — Michael J. Fox
+- Remember, I'll always be here for you, even if you can't see me, because I love you. — Bluey
+- They say nothing lasts forever, but they're just scared it will last longer than they can love it. — Ocean Vuong
+- The simple things are also the most extraordinary things, and only the wise can see them. — The Alchemist
+- I could see that, if not actually disgruntled, he was far from being gruntled. — P. G. Wodehouse
+- Live your life, Puss in Boots. Live it well. — Puss in Boots: The Last Wish
+- Honoring your parents sounds great, but if you take it too far, you might forget to honor yourself. — Turning Red

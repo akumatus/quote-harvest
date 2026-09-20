@@ -1,4 +1,4 @@
-# Quotes (English) — 1459
+# Quotes (English) — 1521
 
 Real lines with real attributions — novels, films, series, authors, the occasional speech. Each one is signed with a person or work a reader might recognize. Chronological: newest at the bottom.
 
@@ -1461,3 +1461,65 @@ Real lines with real attributions — novels, films, series, authors, the occasi
 - I could see that, if not actually disgruntled, he was far from being gruntled. — P. G. Wodehouse
 - Live your life, Puss in Boots. Live it well. — Puss in Boots: The Last Wish
 - Honoring your parents sounds great, but if you take it too far, you might forget to honor yourself. — Turning Red
+- Just keep telling the story. — Asteroid City
+- Whatever you plan never happens. Stuff you never think of happens. — C'mon C'mon
+- Always try to be a little kinder than is necessary. — J.M. Barrie
+- Have a cry, check. Pick myself up, check. Dust myself off, check. And keep going. — Bluey
+- Just look at us, all of us, quietly doing our thing and trying to matter. — Amy Krouse Rosenthal
+- Pay attention to what you pay attention to. — Amy Krouse Rosenthal
+- Contemplate the marvel that is existence, and rejoice that you are able to do so. — Ted Chiang
+- Each time you do something generous, you're shaping yourself into someone who's more likely to be generous next time. — Ted Chiang
+- Each of us is more than the worst thing we've ever done. — Bryan Stevenson
+- It was all very well to be ambitious, but ambition should not kill the nice qualities in you. — Ballet Shoes
+- We all require devotion to something more than ourselves for our lives to be endurable. — Being Mortal
+- It is only when you see people looking ridiculous that you realize just how much you love them. — Agatha Christie
+- Everybody, try laughing. Then whatever scares you will go away. — My Neighbor Totoro
+- We each need to find our own inspiration. Sometimes that's not easy. — Kiki's Delivery Service
+- We had such a weird, mysterious, spectacular day. — My Neighbor Totoro
+- Whenever someone creates something with all of their heart, then that creation is given a soul. — The Cat Returns
+- If you get tired, learn to rest, not to quit. — Banksy
+- I've had to work really hard to love myself, and I won't go back to hiding things about me again. — Sex Education
+- She had a lonely life, but she lived it fully. Always with a smile, determined to be happy. — When Marnie Was There
+- My heart is stronger now because you're in it. — Arrietty
+- It's enough for me to be sure that you and I exist at this moment. — Gabriel Garcia Marquez
+- People mostly did not know enough when they were living life that they were living it. — Elizabeth Strout
+- Sometimes I have loved the peacefulness of an ordinary Sunday. — Gilead
+- There's no need to rush. Please take your time to polish your talent. — Whisper of the Heart
+- A pig that doesn't fly is just a pig. — Porco Rosso
+- The more solitary, the more friendless, the more unsustained I am, the more I will respect myself. — Jane Eyre
+- Sleep felt productive. Something was getting sorted out. — Ottessa Moshfegh
+- The things I regret most in my life are failures of kindness. — George Saunders
+- Welcome comfort. Without it, you cannot stay strong. — Becky Chambers
+- The Sun always has ways to reach us. — Kazuo Ishiguro
+- I think we ought to live happily ever after. — Diana Wynne Jones
+- It is the small everyday deeds of ordinary folk that keep the darkness at bay. — The Hobbit
+- How much good inside a day? Depends how good you live 'em. — Shel Silverstein
+- Every day it gets a little easier. But you have to do it every day. — BoJack Horseman
+- It leads to each other. We become ourselves. — Patti Smith
+- The nice thing about being old is you've got nothing to lose. — Howl's Moving Castle
+- I've got to keep breathing because tomorrow the sun will rise. — Cast Away
+- She remembered what hope was, and this was it. That inner churning that moves you forward. — Olive Kitteridge
+- It is a gift in this life that we do not know what awaits us. — Olive Kitteridge
+- All these lives. All the stories we never know. — Olive Kitteridge
+- It's funny how you wake up each day and never really know if it'll be one that will change your life forever. — Whisper of the Heart
+- This is an interesting planet. It deserves all the attention you can give it. — Gilead
+- But it's your existence I love you for, mainly. — Gilead
+- Love is holy because it is like grace, the worthiness of its object is never really what matters. — Gilead
+- Every day it gets a little easier. But you gotta do it every day. That's the hard part. — BoJack Horseman
+- I have been bent and broken, but, I hope, into a better shape. — Great Expectations
+- It's one thing to be looked at, and another to be seen. — Open Water
+- Even the silence has a story to tell you. Just listen. — Brown Girl Dreaming
+- What happens when people open their hearts? They get better. — Norwegian Wood
+- Sometimes you don't need words to say what's in your heart. — Ruth Ozeki
+- We never stop giving ourselves permission to try to love. — Abide With Me
+- Don't doubt yourself. There's a difference between questioning and doubting. — Black Cake
+- Life will sprout out and do the best it can. — Gwendolyn Brooks
+- Always look for the helpers. There's always someone who is trying to help. — Fred Rogers
+- If we want change, or good fortune, or solace, we have to create it for ourselves. — A Psalm for the Wild-Built
+- Look, we are not unspectacular things. We've come this far, survived this much. — Ada Limon
+- How masterful and mad is hope. — Ada Limon
+- If you look for the good in people, you will find it. — Paddington 2
+- There's nothing as lovely as being comfortable and nothing is so simple. — Tove Jansson
+- The quiet transition from autumn to winter is not a bad time at all. — Tove Jansson
+- The more you study delight, the more delight there is to study. — Ross Gay
+- My delight grows, much like love and joy, when I share it. — Ross Gay

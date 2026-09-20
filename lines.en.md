@@ -1,4 +1,4 @@
-# Lines (English) — 128
+# Lines (English) — 130
 
 Lines that genuinely circulate online with no name a reader would recognize — an internet handle, a small blogger, or nobody knows. Each was search-verified to circulate on the day it was added; none were written by a model. Signed: Anonymous.
 
@@ -130,3 +130,5 @@ Lines that genuinely circulate online with no name a reader would recognize — 
 - The day you plant the seed is not the day you eat the fruit.
 - You have survived every moment of your life, even the ones you swore you wouldn't. This time is no different; you will last.
 - You are allowed to rest. You don't need to be productive all the time.
+- You don't actually have to be good at your hobbies. You can be terrible at them.
+- You're not behind in life. There's no schedule or timetable that we all must follow. It's all made up.

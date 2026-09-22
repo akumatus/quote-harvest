@@ -1,4 +1,4 @@
-# Quotes (English) — 1521
+# Quotes (English) — 1539
 
 Real lines with real attributions — novels, films, series, authors, the occasional speech. Each one is signed with a person or work a reader might recognize. Chronological: newest at the bottom.
 
@@ -1523,3 +1523,21 @@ Real lines with real attributions — novels, films, series, authors, the occasi
 - The quiet transition from autumn to winter is not a bad time at all. — Tove Jansson
 - The more you study delight, the more delight there is to study. — Ross Gay
 - My delight grows, much like love and joy, when I share it. — Ross Gay
+- It's okay to be the teacup with a chip in it. That's the one with a story. — Matt Haig
+- There will be other days. And other feelings. — Matt Haig
+- To know which path to take, it helps to take a few wrong ones. — Matt Haig
+- It is easier to learn to be soaked and happy than to learn how to stop the rain. — Matt Haig
+- Don't absorb criticism from people you wouldn't go to for advice. — Matt Haig
+- Trust me, people aren't thinking about you the way that you're thinking about you. — Schitt's Creek
+- Being a romantic takes a hell of a lot of hope. — Fleabag
+- In spite of everything, I still believe people are really good at heart. — Anne Frank
+- Embrace the mess. That's where the good stuff lives. — Only Murders in the Building
+- Don't be too good at a job you don't want. — Only Murders in the Building
+- Sometimes you have to fight for the things that are worth fighting for. — Arrietty
+- We need to laugh. Otherwise, we'd never stop crying. — The Pitt
+- It was a private thing, to be alive. — Elizabeth Strout
+- Remember you must live. — Ali Smith
+- To be known so well by someone is an unimaginable gift. But to be imagined so well by someone is even better. — Ali Smith
+- Imagine how we would be if we were less afraid. — Charlie Mackesy
+- Don't measure how valuable you are by the way you are treated. — Charlie Mackesy
+- You don't face your fears. You ride them. — Twisters

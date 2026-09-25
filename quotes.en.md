@@ -1,4 +1,4 @@
-# Quotes (English) — 1539
+# Quotes (English) — 1576
 
 Real lines with real attributions — novels, films, series, authors, the occasional speech. Each one is signed with a person or work a reader might recognize. Chronological: newest at the bottom.
 
@@ -1541,3 +1541,40 @@ Real lines with real attributions — novels, films, series, authors, the occasi
 - Imagine how we would be if we were less afraid. — Charlie Mackesy
 - Don't measure how valuable you are by the way you are treated. — Charlie Mackesy
 - You don't face your fears. You ride them. — Twisters
+- I'll have to calm down a bit. Or else I'll burst with happiness. — Moominsummer Madness
+- Isn't it fun when one's friends get exactly what suits them? — Moominsummer Madness
+- Never trust people who don't have something in their lives that they love beyond all reason. — Beartown
+- Time always moves at the same rate, only feelings have different speeds. — Beartown
+- Nothing is stronger than a small hope that doesn't give up. — The Comfort Book
+- Our mind might make prisons, but it also gives us keys. — The Comfort Book
+- Hope, in its simplest form, is the acceptance of possibility. — The Comfort Book
+- It's always very easy to declare that other people are idiots, but only if you forget how idiotically difficult being human is. — Anxious People
+- What's remembered, lives. — Nomadland
+- You're braver and more honest than everybody else. — Nomadland
+- In the darkest times, hope is something you give yourself. — Avatar: The Last Airbender
+- Good times become good memories, but bad times become good lessons. — Avatar: The Last Airbender
+- Failure is only the opportunity to begin again, only this time more wisely. — Avatar: The Last Airbender
+- Many things that seem threatening in the dark become welcoming when we shine light on them. — Avatar: The Last Airbender
+- You have light and peace inside of you. If you let it out, you can change the world around you. — Avatar: The Last Airbender
+- Change often starts with the smallest of whispers. — The House in the Cerulean Sea
+- Hate is loud, but it's only a few people shouting, desperate to be heard. — The House in the Cerulean Sea
+- Sometimes you were able to choose the life you wanted, and sometimes that life chose you back. — The House in the Cerulean Sea
+- The game is only over if you stop playing. There is always one more life. — Tomorrow, and Tomorrow, and Tomorrow
+- To be good at something is not quite the same as loving it. — Tomorrow, and Tomorrow, and Tomorrow
+- I already have a comfy sweater and two best friends. No magic required. — Puss in Boots: The Last Wish
+- I've only ever had one life, but sharing it has made it special. Maybe one life is enough. — Puss in Boots: The Last Wish
+- One thing you can always count on is that hearts change. — Howl's Moving Castle
+- I've had enough of running away. Now I've got something I want to protect. — Howl's Moving Castle
+- It is worth living long enough to outlast whatever sense of grievance you may acquire. — Gilead
+- Any human face is a claim on you, because you can't help but understand the singularity of it. — Gilead
+- When you find somebody that you love it feels like hope. — Fleabag
+- I only want to live in peace, plant potatoes and dream. — Tove Jansson
+- Maybe my passion is nothing special, but at least it's mine. — Tove Jansson
+- The bit where they were here was happy, wasn't it? — Bluey
+- Survival is a creative force. — Ocean Vuong
+- We do not have to misread ourselves. — Ocean Vuong
+- I screw up all the time, but that is being human, and that's my greatest strength. — Superman
+- There comes a time when the risk of doing nothing becomes the greatest risk of all. — Andor
+- Courage. Kindness. Friendship. Character. These are the qualities that define us as human beings. — Wonder
+- It's our insides that make us who we are. — Fred Rogers
+- Once you ask if there is meaning, the only answer is yes. — Marilynne Robinson

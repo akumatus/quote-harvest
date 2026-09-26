@@ -5,10 +5,10 @@ A daily-growing, bilingual library of lines worth keeping: real quotes with real
 <!-- stats:start -->
 | | English | 中文 |
 |---|---:|---:|
-| Quotes (attributed) | 1576 | 1003 |
-| Lines (anonymous) | 131 | 413 |
+| Quotes (attributed) | 1590 | 1015 |
+| Lines (anonymous) | 132 | 414 |
 
-Last harvest: 2026-09-25
+Last harvest: 2026-09-26
 <!-- stats:end -->
 
 ## What's in here

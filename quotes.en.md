@@ -1,4 +1,4 @@
-# Quotes (English) — 1576
+# Quotes (English) — 1590
 
 Real lines with real attributions — novels, films, series, authors, the occasional speech. Each one is signed with a person or work a reader might recognize. Chronological: newest at the bottom.
 
@@ -1578,3 +1578,17 @@ Real lines with real attributions — novels, films, series, authors, the occasi
 - Courage. Kindness. Friendship. Character. These are the qualities that define us as human beings. — Wonder
 - It's our insides that make us who we are. — Fred Rogers
 - Once you ask if there is meaning, the only answer is yes. — Marilynne Robinson
+- Never ignore a possible. — Rooftoppers
+- Love is not there to make you feel special. It's to make you brave. — Rooftoppers
+- You have been the great green adventure of my life. Without you my days would be unlit. — Rooftoppers
+- Everyone starts out with some strange in them. It's just whether you decide to keep it. — Rooftoppers
+- They sat there, feeling happy together. — Frog and Toad
+- I will do it tomorrow, said Toad. Today I will take life easy. — Frog and Toad
+- You can keep your willpower, Frog. I am going home to bake a cake. — Frog and Toad
+- I cannot remember any of the things on my list. I will just have to sit here and do nothing. — Frog and Toad
+- If you are ever bored or blue, stand on the street corner for half an hour. — Maira Kalman
+- I happen to be alive. End of discussion. — Maira Kalman
+- Everyone looks so exalted, or so wretched, or so spiffy, so funny, so splendid. — Maira Kalman
+- It is possible for wonderful encounters and beautiful things to exist. — Hayao Miyazaki
+- Let's just stay in the moment for a little bit. — Somebody Somewhere
+- To be known so well by someone is an unimaginable gift. — Ali Smith

@@ -1,4 +1,4 @@
-# Lines (English) — 131
+# Lines (English) — 132
 
 Lines that genuinely circulate online with no name a reader would recognize — an internet handle, a small blogger, or nobody knows. Each was search-verified to circulate on the day it was added; none were written by a model. Signed: Anonymous.
 
@@ -133,3 +133,4 @@ Lines that genuinely circulate online with no name a reader would recognize — 
 - You don't actually have to be good at your hobbies. You can be terrible at them.
 - You're not behind in life. There's no schedule or timetable that we all must follow. It's all made up.
 - You can be a good person with a kind heart and still say no.
+- Rest is not a reward for progress. Rest is part of progress.
